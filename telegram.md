@@ -7,6 +7,235 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 23:13
+---
+
+## VahidOOnLine — post 240852
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240852_1779133392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️معاون سیاسی، امنیتی و اجتماعی استاندار هرمزگان، دوشنبه‌شب ۲۸ اردیبهشت‌ماه فعال شدن پدافند هوایی در جزیره قشم را تایید کرد و گفت این اقدام در راستای مقابله با «ریزپرنده‌های دشمن» انجام شده است.
+
+به گزارش خبرگزاری مهر، احمد نفیسی گفت صدایی که ساعاتی پیش در جزیره قشم شنیده شد، ناشی از فعال شدن سامانه‌های پدافندی و درگیری با ریزپرنده‌ها بوده است.
+
+او با تاکید بر آمادگی کامل نیروهای مسلح، افزود وضعیت تحت کنترل است و شرایط جزیره قشم «کاملا پایدار» است.
+
+پیشتر خبرگزاری تسنیم وابسته به سپاه پاسداران گزارش داده بود پدافند هوایی در جزیره قشم پس از مشاهده ریزپرنده‌ها در آسمان این منطقه فعال شده و برای مقابله با «اهداف متخاصم» وارد عمل شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9275
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله پهپادی به سلیمانیه عراق
+</div>
+
+## pm_afshaa — post 90989
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90989_1779133392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نظامی‌نویس‌های انگلیس میگن خبری تو راهه :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨از کانال خوب و معتبر «بلو‌گارد» حمایت کنید
+
+https://t.me/BLUEGUARD_NEWSS
+https://t.me/BLUEGUARD_NEWSS
+
+
+🔴اینجا خبرایی می‌شنوی که بقیه بعد تو متوجه میشن
+</div>
+
+## pm_afshaa — post 90987
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90987_1779133393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری تسنیم: فعالیت پدافند دقایقی پیش در قشم به دلیل مقابله با ریز پرنده های آمریکایی بوده!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337830
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337830_1779133393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای‌نت گزارش داد بنیامین نتانیاهو پس از پاسخ جمهوری اسلامی به پیشنهاد آمریکا، نشست امنیتی با حضور وزیران و مشاوران ارشد برگزار می‌کند.
+
+دونالد ترامپ نیز در تماس با نتانیاهو گفته زمان برای جمهوری اسلامی رو به پایان است.
+
+گفت‌وگو با گابریل گرویسمن، استراتژیست حزب جمهوری‌خواه
+@iranintltv
+</div>
+
+## Shin_Persian — post 6073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Mon, 18 May 2026 19:37:36 UTC
+
+Explosion(s) in Erbil, KRI, #Iraq 🇮🇶
+
+فارسی
+
+انفجار(ها) در اربیل، اقلیم کردستان عراق، #Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️روز ارتباطات در سایه خاموشی دیجیتال؛ واکنش کاربران شبکه‌های اجتماعی
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14450
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14450_1779133395.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇦🇫 حداقل دو نفر کشته شده‌اند و چندین نفر دیگر در یک وضعیت تیراندازی فعال در مرکز اسلامی سن دیگو، کالیفرنیا زخمی شده‌اند. ویدیوی بالا شخصی را در یک استخر خون پس از ظاهراً تیر خوردن نشان می‌دهد.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14449
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14449_1779133396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیراندازی در یک مرکز اسلامی در آمریکا
+
+🔸رسانه‌ها روز دوشنبه از حضور یک فرد مسلح و تیراندازی در مرکز اسلامی سن دیگو خبر می‌دهند.
+
+🔹پلیس سن دیگو از مردم خواست که از حضور در این منطقه خودداری کنند.
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14448
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14448_1779133396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات…
+</div>
+
+## RadioFarda — post 157321
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157321_1779133396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ می‌گوید حمله نظامی گسترده به ایران را به طور موقت به تعویق انداخته است
+
+🔸دونالد ترامپ، رئیس جمهور آمریکا، روز دوشنبه در شبکه اجتماعی خود خبر داد که حمله‌ای تازه به ایران برای روز سه‌شنبه برنامه‌ریزی شده بود، اما او فعلا آن را به عقب می‌اندازد.
+
+🔸او توضیح داده است که این حمله را به درخواست «امیر قطر، ولیعهد عربستان سعودی و رئیس جمهور امارات متحده عربی» فعلا انجام نمی‌دهد.
+
+🔸ساعتی پیشتر، دونالد ترامپ در واکنش به پاسخ تازه تهران به پیشنهادات آمریکا گفته بود که قرار نیست امتیازی به ایران بدهد.
+
+🔸او در ادامه تهدید کرده بود که ایران می‌داند که «خیلی زود چه اتفاقی خواهد افتاد».
+
+🔸ایران روز دوشنبه ۲۸ اردیبهشت اعلام کرد که به پیشنهاد جدید آمریکا با هدف پایان دادن به جنگ پاسخ داده است و افزود که تبادل نظر میان طرفین همچنان ادامه دارد.
+
+🔸حال او در پیام تازه خود نوشته است «از آنجا که مذاکراتی جدی در جریان است و از نظر رهبران و متحدان بزرگ ما توافقی حاصل خواهد شد که برای آمریکا هم بسیار قابل قبول خواهد بود»، او حمله نظامی را که برای روز سه‌شنبه برنامه‌ریزی شده بود به تعویق می‌اندازد.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 281394
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_281394_1779133397.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم دوشنبه ۲۸ اردیبهشت ۱۴۰۵
+@BBCPersian
+</div>
+
+## alonews — post 120953
+
+<div align="center">
+  <a href="telegram/content/alonews_120953_1779133399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شنیده شدن صدای انفجار در سلیمانیه عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120952
+
+<div align="center">
+  <img src="telegram/content/alonews_120952_1779133399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥تخفیف ویژه فقط به مدت 2 روز
+🔥
+
+
+🚀با بالاترین سرعت و کمترین قطعی
+
+💰هر گیگ فقط و فقط 170 هزار تومان
+
+
+⚡️پینگ عالی
+
+⚡️دارای لینک ساب
+
+⚡️پشتیبانی 24 ساعته
+
+⚡️ بدون محدودیت کاربر و زمان و ضریب
+
+⚡️مخصوص استفاده روزمره، هوش مصنوعی، گیم و ...
+
+
+✅جهت خرید با تحویل آنی فقط به بات مراجعه کنید
+
+
+✅ @Lex_Server 
+👾 @LexVipBot
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 23:03
 ---
 
