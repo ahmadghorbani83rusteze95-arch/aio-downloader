@@ -7,6 +7,81 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 03:22
+---
+
+## VahidOOnLine — post 240881
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240881_1779148342.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️نیویورک‌تایمز با اشاره به چند مورد تهدید آمریکا به اقدام نظامی جدید علیه رژیم ایران و سپس اعلام به تعویق انداختن آن به نقل از مقاماتی که نام آنها را اعلام نکرده مدعی شده که فرماندهان جمهوری اسلامی، احتمالا با کمک روسیه، الگوهای پروازی جنگنده‌ها و بمب‌افکن‌های آمریکایی را بررسی کرده‌اند. به گفته این منابع، سرنگونی جنگنده اف-۱۵ئی در ماه گذشته و اصابت آتش زمینی به یک جنگنده اف-۳۵ نشان داد تاکتیک‌های پروازی آمریکا قابل پیش‌بینی شده است. به نوشته این روزنامه آمریکایی که دونالد ترامپ پیش‌تر بسیاری از گزارش‌های آن را نادرست توصیف کرده، جمهوری اسلامی بخش زیادی از تسلیحات باقی‌مانده خود را جابه‌جا کرده و این باور را در میان نیروهایش ایجاد کرده که می‌تواند در برابر آمریکا مقاومت کند؛ چه از طریق بستن تنگه هرمز، چه با حمله به زیرساخت‌های انرژی کشورهای همسایه خلیج فارس.یک مقام نظامی آمریکا که به شرط ناشناس ماندن درباره مسائل عملیاتی صحبت می‌کرد گفت ایران در طول آتش‌بس یک‌ماهه با آمریکا، ده‌ها پایگاه بمباران‌شده موشک‌های بالستیک را از زیر آوار خارج کرده،
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240880
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️پیت هگست، وزیر جنگ ایالات متحده، با تقلید لحن و ادبیات خاص دونالد ترامپ، به بازگویی اولین گفتگوی خود با رئیس جمهوری آمریکا پس از پیشنهاد این پست پرداخت. هگست با خنده در میان حاضران گفت: «رئیس‌جمهور ترامپ وقتی برای اولین بار این شغل را به من پیشنهاد داد، گفت: پیت، باید خیلی سگ‌جان و سرسخت باشی؛ ببخشید ولی واقعا همین را گفت. آماده‌ای؟ آن‌ها به سراغت خواهند آمد.»
+وزیر جنگ آمریکا در ادامه با تایید پیش بینی رئیس جمهوری افزود: «پسر، چقدر هم درست می‌گفت؛ او کاملا حق داشت.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 341912
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341912_1779148343.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Police give update on deadly San Diego mosque shooting https://twitter.com/i/broadcasts/1kKzDMRoZQDJv
+</div>
+
+## pm_afshaa — post 91010
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91010_1779148343.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واشنگتن پست به نقل از یک مقام پاکستانی: با توجه به مسائل متعدد در حال بررسی و نوع اجرای توافق، پیشرفت مذاکرات دشوار شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91009
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91009_1779148344.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیویورک تایمز:
+ترامپ فعلا به خاطر نگرانی‌های پنتاگون که فکر میکنن ایران سیستم‌های پایش هوایی و دفاعیش رو ارتقا داده، از شروع دوباره جنگ برای فردا منصرف شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️معادله چند مجهولی پهپادهای ناشناس؛ آیا آسمان عراق از کنترل دولت خارج شده است؟
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 03:12
 ---
 
