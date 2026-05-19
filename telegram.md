@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 00:03
+---
+
+## IranIntlTV — post 337997
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337997_1779222803.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند «یک رفاقت؛ از زندان وکیل‌آباد مشهد تا سن‌دیگو» ساخته اردوان روزبه و تولید ایران‌اینترنشنال، برنده جایزه نقره‌ای تلی ۲۰۲۶ شد. این مستند روایت دوستی مایکل وایت، کهنه‌سرباز آمریکایی و مهدی وطن‌خواه، فعال سیاسی در زندان وکیل‌آباد مشهد است.
+
+گفت‌وگو با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## FarsiVOA — post 218175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس، معاون رئیس جمهوری آمریکا، روز سه‌شنبه ۲۹ اردیبهشت با حضور در سالن کنفرانس‌های مطبوعاتی کاخ سفید به پرسش‌های خبرنگاران، که بخش عمده‌ای از آن درباره وضعیت ایران و منطقه بود، پاسخ داد. صدای آمریکا این جلسه را به صورت مستفیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218174
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️جی دی ونس، معاون رئیس جمهوری آمریکا، روز سه‌شنبه ۲۹ اردیبهشت با حضور در سالن کنفرانس‌های مطبوعاتی کاخ سفید به پرسش‌های خبرنگاران، که بخش عمده‌ای از آن درباره وضعیت ایران و منطقه بود، پاسخ داد. صدای آمریکا این جلسه را به صورت مستفیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+@FarsiVOA
+</div>
+
+## Dirty_Kids — post 389775
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389775_1779222805.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیفا ورود پرچم شیرو خورشید به داخل ورزشگاه هارو ممنوع کرده ولی نمیدونه گل های تو غربت جام جهانی رو برای مزدوران جمهوری اسلامی تبدیل به جام جهنمی میکنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389774
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389774_1779222806.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 طبق گفته‌ی خواهر الهه حسین‌نژاد؛
+بهمن فرزانه (قاتل) امشب اعدام میشه.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏صدا و سیما میخواد امشب طرز کار کردن با بمب اتم را آموزش بده
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121180
+
+<div align="center">
+  <a href="telegram/content/alonews_121180_1779222807.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تندروهای خیابونی این شبا تو تجمعات دارن یه‌ جوری قر میدن و میرقصن که انگاری ما رهبر آمریکا رو ترور کردیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 23:58
 ---
 
