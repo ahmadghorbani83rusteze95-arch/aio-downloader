@@ -7,6 +7,64 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 13:22
+---
+
+## WithYashar — post 11635
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه واشنگتن پست به نقل از یک مقام پاکستانی: ایران می‌خواهد پیش از اعلام توافق هسته‌ای، به توافقی برای پایان دادن به جنگ دست یابد.
+واشنگتن می‌خواهد توافق بر سر همه مسائل را یکجا اعلام کند.
+@withyashar
+</div>
+
+## Shin_Persian — post 6081
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6081_1779184341.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Tue, 19 May 2026 09:46:48 UTC
+
+Now @ 0946Z
+Blast was heard in Qeshm island, eyewitness reports it was likely from the sea
+Hormozgan Province, #Iran
+
+فارسی
+
+هم‌اکنون @ ۰۹۴۶ زولو (۱۳:۱۶ به وقت تهران)
+صدای انفجار در جزیره قشم شنیده شد، گزارش‌های شاهدان عینی حاکی از آن است که احتمالاً از سمت دریا بوده است.
+استان هرمزگان، #Iran
+
+𝕏 · @shin_persian
+</div>
+
+## IranianMinds — post 20377
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پاکستان :
+
+احتمال اینکه جنگ مجدد شروع بشه خیلی کمه و دو طرف دارن به توافق میرسن.
+
+@IranianMinds
+</div>
+
+## alonews — post 121043
+
+<div align="center">
+  <a href="telegram/content/alonews_121043_1779184342.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدای شنیده شده در دزفول مربوط به تست سامانه پدافند بود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 13:12
 ---
 
