@@ -7,6 +7,216 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 22:14
+---
+
+## VahidOOnLine — post 241211
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241211_1779302685.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بر اساس بیانیه نهاد ریاست‌جمهوری ترکیه، رجب طیب اردوغان، رئیس‌جمهوری این کشور، روز چهارشنبه ۳۰ اردیبهشت در تماسی تلفنی با دونالد ترامپ، رئیس‌جمهوری ایالات متحده، از تمدید آتش‌بس میان آمریکا و ایران استقبال و ابراز امیدواری کرد که مسائل مورد اختلاف میان دو طرف قابل حل است.
+
+در بیانیه ریاست‌جمهوری ترکیه آمده است: «رئیس‌جمهوری ما در این گفتگو اظهار داشت که تصمیم برای تمدید آتش‌بس در منطقه درگیری را تحولی مثبت ارزیابی می‌کند و بر این باور است که دست‌یابی به یک راه‌حل منطقی برای مسائل مورد اختلاف امکان‌پذیر است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11783
+
+
+
+
+## WithYashar — post 11782
+
+
+
+
+## WithYashar — post 11781
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلش ریپورت: اردوغان در تماس تلفنی با ترامپ درباره روابط ترکیه و آمریکا و مسائل منطقه‌ای صحبت کرد.
+@withyashar
+</div>
+
+## WithYashar — post 11780
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به ادعای آکسیوس : امروز اوایل روز، بحث داغی در داخل کاخ سفید درباره ایران شکل گرفت، جایی که جی‌دی ونس، استیو ویتکاف و جرد کوشنر برای توافق اولیه‌ای جهت پایان دادن به جنگ تلاش می‌کردند، در حالی که پیت هگست و مارکو روبیو برای فشار بیشتر و احتمال اقدام نظامی استدلال می‌کردند
+@withyashar
+</div>
+
+## WithYashar — post 11779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لطفا دایرکت بی مورد و چند پیغامه ندید 🙌🏾
+</div>
+
+## pm_afshaa — post 91128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اسرائیل هیوم:یک مناقشه داغ در کاخ سفید بین مقامات ارشد آمریکا بر سر سیاست ایران رخ داد،معاون رئیس‌جمهور آمریکا، جی‌دی ونس، و فرستادگان استیو ویتکاف و جارد کوشنر برای توافق اولیه به منظور پایان دادن به جنگ تلاش کردند،
+در حالی که وزیر جنگ پیت هگست و وزیر امور خارجه مارکو روبیو خواستار فشار و حمله بودن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تسنیم: آمریکایی‌ها متن جدیدی به ایران ارسال کردن و ایران در حال بررسی متن ارسال شدست؛ هنوز از طرف ایران پاسخی داده نشده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91126
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس به نقل از یک منبع آمریکایی: ترامپ به نتانیاهو از یک دوره 30 روزه مذاکره درباره برنامه هسته‌ای ایران و تنگه هرمز اطلاع داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91125
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رادیو و تلویزیون اسرائیل: نتانیاهو تلاش می‌کند تا ترامپ را به دادن چراغ سبز برای ازسرگیری حملات به ایران متقاعد سازد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338134
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338134_1779302686.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338133
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338133_1779302687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## FarsiVOA — post 218250
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218250_1779302689.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی عربشاهی در برنامه تفسیر خبر: جمهوری اسلامی نسلی را تربیت می‌کند که منطق مرگ را بپذیرد
+</div>
+
+## DW_Farsi — post 124939
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124939_1779302691.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ارتش اسرائیل: در بالاترین سطح آماده‌باش قرار داریم
+
+بر اساس گزارش خبرگزاری آلمان، ارتش اسرائیل پس از دور تازه تهدیدهای متقابل میان تهران و واشنگتن، اعلام کرده است در بالاترین سطح آماده‌باش قرار دارد.
+
+ایال زامیر، رئیس ستاد ارتش اسرائیل، در دیدار با فرماندهان نظامی گفت ارتش این کشور در مقطع کنونی برای هر تحول احتمالی آماده است.
+
+این موضع‌گیری پس از آن بیان شد که سپاه پاسداران هشدار داد اگر آمریکا و اسرائیل بار دیگر به ایران حمله کنند، دامنه جنگ از سطح منطقه فراتر خواهد رفت.
+
+پیش از آن، دونالد ترامپ، رئيس‌جمهور آمریکا نیز گفته بود اگر تهران با شرایط او برای یک توافق صلح موافقت نکند، حملات تازه‌ای انجام خواهد شد.
+
+ترامپ همچنین روز چهارشنبه ۲۰ ماه مه در سخنرانی خود در مراسم فارغ‌التحصیلی آکادمی گارد ساحلی ایالات متحده گفت: «همه چیز از بین رفته است. نیروی دریایی آنها از بین رفته است. نیروی هوایی آنها از بین رفته است. تقریبا همه چیز. تنها سوال این است که آیا ما باید برویم و کار را تمام کنیم؟ آیا آنها قرار است توافقی را امضا کنند؟ ببینیم چه اتفاقی می‌افتد.»
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14544
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14544_1779302692.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام:
+
+💢اوایل امروز در خلیج عمان، تفنگداران دریایی آمریکا از یگان اعزامی دریایی سی و یکم سوار بر M/T Celestial Sea، یک نفتکش تجاری با پرچم ایران شدند که مظنون به تلاش برای نقض محاصره ایالات متحده از طریق عبور از بندر ایران بود.
+
+💢نیروهای آمریکایی پس از جستجو و هدایت خدمه کشتی برای تغییر مسیر، کشتی را آزاد کردند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/ تسنیم:
+
+آمریکایی‌ها متن جدیدی به ایران ارسال کرده‌اند، ایران در حال بررسی متن است و هنوز پاسخی داده نشده است.
+میانجی پاکستانی در تهران به دنبال نزدیک کردن متون به یکدیگر است.
+
+@IranianMinds
+</div>
+
+## alonews — post 121394
+
+<div align="center">
+  <a href="telegram/content/alonews_121394_1779302695.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 عاصم منیر فردا به تهران می‌رود احتمالا خبر مهمی در راه است
+
+
+🔴روزنامه ابزرور پاکستان: فیلد مارشال سید عاصم منیر، رئیس ستاد ارتش، به عنوان چهره‌ای کلیدی در روند دیپلماتیک ایران و آمریکا، فردا به ایران می‌رود. در طول این سفر احتمالی، انتظار می‌رود اعلامیه‌ای مبنی بر تأیید تکمیل پیش‌نویس نهایی توافق منتشر شود.
+
+
+🔴 این سفر می‌تواند به عنوان یک نقطه عطف دیپلماتیک سطح بالا باشد، جایی که تکمیل نسخه نهایی توافق ممکن است رسماً اعلام شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121393
+
+<div align="center">
+  <a href="telegram/content/alonews_121393_1779302696.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امروز اوایل روز، بحث داغی در داخل کاخ سفید درباره ایران شکل گرفت، جایی که جی‌دی ونس، استیو ویتکاف و جرد کوشنر برای توافق اولیه‌ای جهت پایان دادن به جنگ تلاش می‌کردند، در حالی که پیت هگست و مارکو روبیو برای فشار بیشتر و احتمال اقدام نظامی استدلال می‌کردند - گزارش آکسیوس
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 22:03
 ---
 
