@@ -7,6 +7,69 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 08:53
+---
+
+## VahidOOnLine — post 241084
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241084_1779254593.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، اعلام کرد حکم اعدام بهمن فرزانه، قاتل الهه حسین‌نژاد، بامداد چهارشنبه اجرا شده است. الهه حسین‌نژاد در خرداد ۱۴۰۴ برای بازگشت به منزل سوار یک خودرو شده بود، اما راننده او را ربود و پیکر او را در بیابان‌های اطراف تهران رها کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 338029
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338029_1779254594.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، اعلام کرد حکم اعدام بهمن فرزانه، قاتل الهه حسین‌نژاد، بامداد چهارشنبه اجرا شده است. الهه حسین‌نژاد در خرداد ۱۴۰۴ برای بازگشت به منزل سوار یک خودرو شده بود، اما راننده او را ربود و پیکر او را در بیابان‌های اطراف تهران رها کرد.
+https://iranintl.com/202605200731
+</div>
+
+## IranIntlTV — post 338028
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338028_1779254595.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۳۰ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 338027
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338027_1779254597.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۳۰ اردیبهشت
+@iranintltv
+</div>
+
+## BBCPersian — post 281568
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻زوج بریتانیایی زندانی در ایران «اعتصاب غذا کردند»
+
+🔻خانواده یک زوج بریتانیایی که پس از متهم شدن به جاسوسی در ایران زندانی شده‌اند، می‌گویند که این دو نفر اعتصاب غذا کرده‌اند.
+
+لیندسی و کریگ فورمن در ژانویه ۲۰۲۵هنگام عبور از ایران با موتورسیکلت دستگیر شدند. آنها در نهایت به ده سال زندان محکوم شدند.
+
+در همین حال، یک تبعه ایرانی که اقامت دائم ایالات متحده را دارد، پس از ده سال زندان در ایران آزاد شده و به ایالات متحده بازگشته است.
+
+شهاب دلیلی به همکاری با یک دولت متخاصم متهم شده بود.
+https://bbc.in/4f2MgSt
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 08:43
 ---
 
