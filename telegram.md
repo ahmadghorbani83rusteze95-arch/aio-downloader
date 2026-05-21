@@ -7,6 +7,36 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 08:02
+---
+
+## VahidOOnLine — post 241267
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241267_1779337960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای‌نت به نقل از یک مقام ارشد اسرائیلی گزارش داد جنگ بعدی با جمهوری اسلامی آخرین جنگ نخواهد بود و تا زمانی که حکومت ایران در قدرت باقی بماند، احتمال تکرار درگیری‌ها در هر سال و یا بیشتر وجود دارد.
+این مقام اسرائیلی تاکید کرد که باید انتظارات عمومی در این مورد را «بازتنظیم» کرد.
+این مقام ارشد اسرائیلی گفت درگیری‌ها به طور مکرر ادامه پیدا خواهد کرد، تا اطمینان حاصل شود که تهدید هسته‌ای و موشک‌های بالستیک، موجودیت کشور اسرائیل را به خطر نمی‌اندازد.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## RadioFarda — post 157405
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157405" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: سرخط خبرها با رادیوفردا، ۳۱ اردیبهشت ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 07:52
 ---
 
