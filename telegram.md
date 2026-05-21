@@ -7,6 +7,345 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 23:45
+---
+
+## VahidOOnLine — post 241399
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241399_1779394500.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ وزارت جنگ آمریکا روز پنجشنبه ۳۱ اردیبهشت، با انتشار ویدیویی بر ضرورت افزایش بودجه دفاعی کشور تاکید کرد. در این ویدیو که ترکیبی از صحنه‌های واقعی، گفته‌های پیت هگست، وزیر جنگ آمریکا و تصاویر کارتونی است، تصویری از مجتبی خامنه‌ای، رهبر جدید جمهوری اسلامی نیز دیده می‌شود که در حالی‌که یک پایش قطع شده، با عصا و دست باندپیچی شده کنار یک سامانه موشکی قرار می‌گیرد. در ادامه دیده می‌شود که سامانه موشکی فرو ریخته و خامنه‌ای روی زمین می‌افتد.
+
+در این ویدیو که به زبان ساده و برای مخاطب قرار دادن شهروندان آمریکایی ساخته شده، تاکید شده است که بودجه ۱.۵ تریلیون دلاری وزارت جنگ، برای بازسازی توان نظامی آمریکا و دستیابی به جدیدترین فناوری‌ها ضروری است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241398
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241398_1779394501.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کریستیانو رونالدو، مهاجم ۴۱ ساله پرتغالی النصر، پس از سه فصل حضور در فوتبال عربستان، نخستین قهرمانی خود در لیگ حرفه‌ای این کشور را به دست آورد.
+تیم فوتبال النصر عربستان سعودی در آخرین هفته از رقابت‌های لیگ این کشور (فصل ۲۰۲۵–۲۶)، پنجشنبه شب در ورزشگاه الاول پارک ریاض به مصاف تیم ضمک رفت و موفق شد در یک بازی پرگل و یک‌طرفه با نتیجه ۴ بر ۱ مهمان خود را با شکست بدرقه کند.
+شاگردان ژرژ ژسوس که برای قطعی کردن عنوان قهرمانی خود در این فصل به ۳ امتیاز این مسابقه نیاز داشتند، بازی را طوفانی آغاز کردند. گل‌های النصر در این دیدار حساس را سادیو مانه (دقیقه ۳۳)، کینگزلی کومان (دقیقه ۵۱) و فوق‌ستاره پرتغالی، کریستیانو رونالدو دو گل به ثمر رساندند. تک گل تیم ضمک نیز در دقیقه ۵۷ از روی نقطه پنالتی توسط مورلای سیلا وارد دروازه بنتو شد.
+
+رونالدو که در ۳۰ دسامبر ۲۰۲۲ به النصر پیوست، در فصل ۲۰۲۲–۲۳ و ۲۰۲۳–۲۴ از رسیدن به قهرمانی لیگ بازمانده بود و حالا در سومین فصل حضورش، همراه با النصر این جام را فتح کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241397
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241397_1779394502.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از یک منبع ارشد ایرانی نوشت هنوز هیچ توافقی میان تهران و واشینگتن حاصل نشده، اما شکاف‌ها کاهش یافته است.
+
+این منبع افزود غنی‌سازی اورانیوم و کنترل جمهوری اسلامی بر تنگه هرمز همچنان از جمله موارد اختلاف در مذاکرات است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: پیش‌نویس نهایی توافق‌نامه ایالات متحده و ایران با میانجیگری پاکستان دست یافته است که قرار است ظرف چند ساعت آینده اعلام شود. ۱. این پیش‌نویس شامل آتش‌بس فوری و جامع در تمامی جبهه‌ها است. ۲. طرفین متعهد می‌شوند به‌صورت متقابل از هدف قرار دادن زیرساخت‌ها…
+</div>
+
+## WithYashar — post 11876
+
+
+
+
+## WithYashar — post 11875
+
+
+
+
+## mwarmonitor — post 9443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نقاط اختلاف اصلی در مذاکرات با ایران همچنان بر سر موضوع برنامه هسته‌ای و باز شدن تنگه هرمز باقی مانده است — به گفته یک مقام ارشد کاخ سفید به پولیتیکو. @mwarmonitor
+</div>
+
+## pm_afshaa — post 91178
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91178_1779394503.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 LEX ViP دوباره قیمتو ترکوند! 
+🚨
+
+دیگه وقتشه با قیمت واقعی، کیفیت واقعی رو تجربه کنی 
+🚬
+🔥
+
+
+💎 هر گیگ فقط 150 هزار تومن
+
+🆕 5گیگ بخر 7گیگ ببر!
+
+⚡️ سرعت بالا و پایدار
+
+⛔️ بدون قطعی و افت سرعت
+
+😀 مناسب گیم، دانلود و استفاده سنگین
+
+
+💰این همون قیمتیه که همه دنبالش بودن
+
+
+⏰ فرصت محدوده… قبل گرون شدن جا نمونی
+‼️
+
+
+💬@Lex_Server 
+🚀@LexVipBot
+</div>
+
+## pm_afshaa — post 91177
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار الجزیره:خبرها در مورد چارچوب توافق بین تهران و واشنگتن، تا این لحظه صرفاً حدس و گمان است
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91176
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الحدث شامگاه پنج‌شنبه به نقل از یک منبع دیپلماتیک ارشد اعلام کرد که فرمانده ارتش پاکستان امشب به تهران سفر نخواهد کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91175
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه خبر توافق رژیم جمهوری اسلامی با آمریکا را تکذیب کرد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75602
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75602_1779394503.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترجمه ماشین:
+در تازه‌ترین تحولات بحران ایران و مذاکرات جاری، یک منبع بلندپایه به «العربیه» گفت که فرمانده ارتش پاکستان امشب راهی تهران نخواهد شد؛ این در حالی است که پیش‌تر گزارش‌هایی درباره احتمال سفر او در چارچوب میانجی‌گری‌های منطقه‌ای منتشر شده بود.
+
+قرار بود عاصم منیر، رئیس ستاد ارتش پاکستان، امروز پنج‌شنبه در سفری رسمی وارد تهران شود؛ هم‌زمان با انتظارها برای تحویل پاسخ ایران به تازه‌ترین پیشنهاد آمریکا برای توقف جنگ و دستیابی به توافق میان ایران و ایالات متحده.
+alarabiya
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 338293
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338293_1779394503.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از یک منبع ارشد ایرانی نوشت هنوز هیچ توافقی میان تهران و واشینگتن حاصل نشده، اما شکاف‌ها کاهش یافته است.
+
+این منبع افزود غنی‌سازی اورانیوم و کنترل جمهوری اسلامی بر تنگه هرمز همچنان از جمله موارد اختلاف در مذاکرات است.
+https://iranintl.com/202605214677
+</div>
+
+## FarsiVOA — post 218327
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218327_1779394504.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️شکریا برادوست در برنامه تفسیر خبر: جمهوری اسلامی از دولت حامی تروریسم به دولت تروریست تبدیل شده است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218326
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش‌ها از آماده باش اسرائیل برای حمله مجدد به جمهوری اسلامی در میانه تردید از موفقیت مذاکرات
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218325
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218325_1779394506.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️حسن هاشمیان در برنامه تفسیر خبر: جمهوری اسلامی دهان مردم را بسته و روایت خودش را غالب کرده است
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157438
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157438" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: خبرهای ساعت ۲۱ با رادیوفردا،۳۱اردیبهشت ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ایالات متحده روز پنج‌شنبه ۹ فرد مرتبط با حزب‌الله ازجمله سفیر ایران در لبنان را به اتهام «اخلال در روند صلح در لبنان» تحریم کرد. 🔸اسکات بسنت، وزیر خزانه‌داری آمریکا، گفت: «حزب‌الله یک سازمان تروریستی است و باید به‌طور کامل خلع سلاح شود.» 🔸او افزود: «وزارت…
+</div>
+
+## RadioFarda — post 157436
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157436_1779394508.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ایالات متحده روز پنج‌شنبه ۹ فرد مرتبط با حزب‌الله ازجمله سفیر ایران در لبنان را به اتهام «اخلال در روند صلح در لبنان» تحریم کرد.
+
+🔸اسکات بسنت، وزیر خزانه‌داری آمریکا، گفت: «حزب‌الله یک سازمان تروریستی است و باید به‌طور کامل خلع سلاح شود.»
+
+🔸او افزود: «وزارت خزانه‌داری به اقدام علیه مقام‌هایی که در دولت لبنان نفوذ کرده‌اند و به حزب‌الله امکان می‌دهند کارزار بی‌معنای خشونت علیه مردم لبنان را ادامه دهد و مانع صلح پایدار شود، ادامه خواهد داد.»
+
+🔸حزب‌الله مورد حمایت جمهوری اسلامی است و علاوه بر شاخه نظامی، شاخه سیاسی نیز دارد که شامل نمایندگان پارلمان لبنان می‌شود. اتحادیه اروپا تنها شاخه نظامی این گروه را تروریستی می‌داند.
+
+🔸این گروه به‌شدت با مذاکرات مستقیم اخیر میان نمایندگان لبنان و اسرائیل مخالفت کرده است. واشنگتن و متحدش اسرائیل خواستار خلع سلاح کامل حزب‌الله شده‌اند.
+
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 389906
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389906_1779394509.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بحث علی کریمی شده بحث اول مجازی
+ظاهرای اعلام برائت داره میکنه از شاهزاده رضا پهلوی!
+
+داستان سر دعوا با شاهین نجفی هست، گفته حق نداری کنسرت بزاری عادیسازی کنی
+
+شاهین نجفی هم میگه من خواننده ۶و۸ نیستم که کنسرتم انقلابیه
+
+شاهبانو یاسمین هم اومد گفت دعوا نکنید
+ولی گوش نداد و این استوری و توئیتارو زد
+هشتگ #جاویدشاه رو هم حذف کرده 🤷🏻‍♂
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121659
+
+<div align="center">
+  <a href="telegram/content/alonews_121659_1779394510.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه CNN: ترامپ در کوبا به دنبال چیزی است که در ایران از دستش رفته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121658
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌟 اشتراک v2ray 
+🗯گیگی 150,000 تومان 
+🔗لینک ساب برا چک کردن مصرف و حجمتون 
+🔥سرعت و کیفیت بالا 
+✅ پشتیبانی دائم 
+📱جهت خرید : @v2safeBot
+</div>
+
+## alonews — post 121657
+
+<div align="center">
+  <img src="telegram/content/alonews_121657_1779394510.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌟 اشتراک v2ray
+
+
+🗯گیگی 150,000 تومان
+
+🔗لینک ساب برا چک کردن مصرف و حجمتون
+
+🔥سرعت و کیفیت بالا
+
+✅ پشتیبانی دائم
+
+
+📱جهت خرید : @v2safeBot
+</div>
+
+## alonews — post 121656
+
+<div align="center">
+  <a href="telegram/content/alonews_121656_1779394511.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک منبع ارشد ایرانی به رویترز: شکاف‌ها کاهش یافته اما هنوز به توافق نرسیده‌ایم
+
+
+🔴غنی‌سازی اورانیوم و تنگه هرمز از جمله نقاط اختلافی درباره توافق هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121655
+
+<div align="center">
+  <a href="telegram/content/alonews_121655_1779394511.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی قلهکی: تعویقِ سفرِ «عاصم منیر»، فرمانده ارتش پاکستان به تهران _پس از انتظارِ ۲۴ ساعته_ نشانه‌ی مهمی‌ست!
+
+
+🔴«آمریکا» اصرار دارد «بحث هسته‌ای در شرایطِ فعلی، مذاکره و پرونده آن بسته شود» آنهم با «سختگیری هسته‌ای بر ایران!»
+
+
+🔴ولی «ایران» مذاکره در بابِ پرونده هسته‌ای را منوطِ به پروسه‌ی اعتمادسازِ ۳۰ روزه‌ی «پایانِ جنگ» و «رفعِ محاصره دریایی» می‌داند!
+
+
+🔴در موضوع «تنگه» هم آمریکای‌ها علی‌رغمِ «پذیرشِ مدیریت ایران بر تنگه»، حاضر به پذیرش موضوعِ «اخذ عوارض از تنگه توسط ایران» نیستند!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 23:33
 ---
 
