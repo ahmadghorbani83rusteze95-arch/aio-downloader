@@ -637,17 +637,17 @@ jobs:
 
             if [ "$METHOD" = "release" ]; then
               # Unsplit first, split if > 1950 MB
-              (cd "$BUNDLE_TMP" && zip -r "../${OUTPUT_FOLDER}/${BUNDLE_ZIP}" *)
+              (cd "$BUNDLE_TMP" && zip -0 -r "../${OUTPUT_FOLDER}/${BUNDLE_ZIP}" *)
               FULLZIP="${OUTPUT_FOLDER}/${BUNDLE_ZIP}"
               SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
               if [ "$SIZE" -gt 2044723200 ]; then
                 echo "Bundle ZIP larger than 1950 MiB, splitting"
                 rm "$FULLZIP"
-                (cd "$BUNDLE_TMP" && zip -r -s 1950m "../${OUTPUT_FOLDER}/${BUNDLE_ZIP}" *)
+                (cd "$BUNDLE_TMP" && zip -0 -r -s 1950m "../${OUTPUT_FOLDER}/${BUNDLE_ZIP}" *)
               fi
             else
               # split_push: always 99 MB parts
-              (cd "$BUNDLE_TMP" && zip -r -s 99m "../${OUTPUT_FOLDER}/${BUNDLE_ZIP}" *)
+              (cd "$BUNDLE_TMP" && zip -0 -r -s 99m "../${OUTPUT_FOLDER}/${BUNDLE_ZIP}" *)
             fi
             rm -rf "$BUNDLE_TMP"
           else
@@ -657,16 +657,16 @@ jobs:
               fname=$(basename "$f")
               echo "🗜️ Zipping: $fname"
               if [ "$METHOD" = "release" ]; then
-                zip -j "$OUTPUT_FOLDER/${fname}.zip" "$f"
+                zip -0 -j "$OUTPUT_FOLDER/${fname}.zip" "$f"
                 FULLZIP="${OUTPUT_FOLDER}/${fname}.zip"
                 SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
                 if [ "$SIZE" -gt 2044723200 ]; then
                   echo "ZIP larger than 1950 MiB, splitting"
                   rm "$FULLZIP"
-                  zip -j -s 1950m "$OUTPUT_FOLDER/${fname}.zip" "$f"
+                  zip -0 -j -s 1950m "$OUTPUT_FOLDER/${fname}.zip" "$f"
                 fi
               else
-                zip -j -s 99m "$OUTPUT_FOLDER/${fname}.zip" "$f"
+                zip -0 -j -s 99m "$OUTPUT_FOLDER/${fname}.zip" "$f"
               fi
               rm "$f"
             done
@@ -745,12 +745,11 @@ jobs:
               continue
             fi
 
-            # Upload the entire file in one chunk
+            # Upload the entire file in one chunk (streamed from disk)
             HTTP_CODE=$(curl -s -o /dev/null -w "%{http_code}" -X PUT \
               -H "Authorization: Bearer $ACCESS_TOKEN" \
-              -H "Content-Length: $size" \
               -H "Content-Range: bytes 0-$((size-1))/$size" \
-              --data-binary "@$file" \
+              --upload-file "$file" \
               "$SESSION_URI")
             if [ "$HTTP_CODE" -eq 200 ] || [ "$HTTP_CODE" -eq 201 ]; then
               echo "✅ Uploaded $fname"
