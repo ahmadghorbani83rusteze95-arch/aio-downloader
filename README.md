@@ -147,11 +147,11 @@
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://www.youtube.com/robots.txt
 https://www.instagram.com/robots.txt
 https://x.com/robots.txt
-+++
+```
 
 </div>
 
@@ -316,9 +316,9 @@ https://x.com/robots.txt
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://developers.google.com/oauthplayground
-+++
+```
 
 </div>
 
@@ -328,10 +328,10 @@ https://developers.google.com/oauthplayground
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 GOOGLE_CLIENT_ID → Client ID خود را بچسبانید
 GOOGLE_CLIENT_SECRET → Client Secret خود را بچسبانید
-+++
+```
 
 </div>
 
@@ -361,9 +361,9 @@ GOOGLE_CLIENT_SECRET → Client Secret خود را بچسبانید
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://www.googleapis.com/auth/drive
-+++
+```
 
 </div>
 
@@ -375,9 +375,9 @@ https://www.googleapis.com/auth/drive
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 GOOGLE_REFRESH_TOKEN → Refresh Token خود را بچسبانید
-+++
+```
 
 </div>
 
@@ -413,9 +413,9 @@ GOOGLE_REFRESH_TOKEN → Refresh Token خود را بچسبانید
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 curl -fsSL https://raw.githubusercontent.com/ShahabSL/Skirk/main/install.sh | sh
-+++
+```
 
 </div>
 
@@ -424,14 +424,14 @@ curl -fsSL https://raw.githubusercontent.com/ShahabSL/Skirk/main/install.sh | sh
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 skirk setup init \
   --out skirk-kit \
   --reset-google-login \
   --oauth-mode personal \
   --oauth-client-id "CLIENT_ID" \
   --oauth-client-secret "CLIENT_SECRET"
-+++
+```
 
 </div>
 
@@ -477,7 +477,7 @@ skirk setup init \
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 [Interface]
 PrivateKey = ...
 Address = 10.2.0.2/32
@@ -487,7 +487,7 @@ DNS = 10.2.0.1
 PublicKey = ...
 AllowedIPs = 0.0.0.0/0
 Endpoint = 185.159.158.146:51820
-+++
+```
 
 </div>
 
@@ -530,12 +530,12 @@ Endpoint = 185.159.158.146:51820
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://www.youtube.com/watch?v=dfdXGw1xY9A v 480
 https://www.youtube.com/watch?v=dfdXGw1xY9A v 1080 60
 https://www.youtube.com/watch?v=VIDEO_ID a max
 https://www.youtube.com/watch?v=VIDEO_ID v 4k
-+++
+```
 
 </div>
 
@@ -572,11 +572,11 @@ https://www.youtube.com/watch?v=VIDEO_ID v 4k
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://www.instagram.com/p/DX2y7oLDFOb/,
 https://www.instagram.com/reel/DVRXhn0gjL3/,
 https://www.instagram.com/p/DX6US4uCNGb/
-+++
+```
 
 </div>
 
@@ -604,10 +604,10 @@ https://www.instagram.com/p/DX6US4uCNGb/
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://x.com/username/status/123456789,
 https://x.com/otheruser/status/987654321
-+++
+```
 
 </div>
 
@@ -634,9 +634,9 @@ https://x.com/otheruser/status/987654321
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://example.com/file.zip, https://example.com/video.mp4
-+++
+```
 
 </div>
 
@@ -663,9 +663,9 @@ https://example.com/file.zip, https://example.com/video.mp4
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 ["VahidOOnLine", "mwarmonitor", "channelname"]
-+++
+```
 
 </div>
 
@@ -690,9 +690,9 @@ https://example.com/file.zip, https://example.com/video.mp4
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://t.me/channelname/123, https://t.me/channelname/456
-+++
+```
 
 </div>
 
@@ -721,10 +721,10 @@ https://t.me/channelname/123, https://t.me/channelname/456
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://example.com/article
 https://github.com/ProAlit/aio-downloader
-+++
+```
 
 </div>
 
@@ -758,7 +758,7 @@ https://github.com/ProAlit/aio-downloader
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://www.youtube.com/watch?v=VIDEO_ID -- --format "bestvideo[height<=1080]+bestaudio/best[height<=1080]" --merge-output-format mkv
 https://www.tiktok.com/@user/video/ID -- --write-subs --sub-lang en
 # یوتیوب با زیرنویس
@@ -771,7 +771,7 @@ https://x.com/user/status/ID -- --format best
 https://www.pinterest.com/pin/ID -- --format best
 # ساندکلاد
 https://soundcloud.com/artist/track -- --format bestaudio
-+++
+```
 
 </div>
 
@@ -780,10 +780,10 @@ https://soundcloud.com/artist/track -- --format bestaudio
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://www.youtube.com/watch?v=dfdXGw1xY9A v 1080
 https://soundcloud.com/artist/track a 320
-+++
+```
 
 </div>
 
@@ -813,10 +813,10 @@ https://soundcloud.com/artist/track a 320
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://soundcloud.com/artist/track,
 https://soundcloud.com/artist/track
-+++
+```
 
 </div>
 
@@ -848,11 +848,11 @@ https://soundcloud.com/artist/track
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://open.spotify.com/track/xxxxx,
 https://open.spotify.com/album/xxxxx,
 https://open.spotify.com/playlist/xxxxx
-+++
+```
 
 </div>
 
@@ -918,11 +918,11 @@ https://open.spotify.com/playlist/xxxxx
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 app: com.spotify.music
 architecture: arm64
 merge_splits: true
-+++
+```
 
 </div>
 
@@ -957,10 +957,10 @@ merge_splits: true
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://mega.nz/file/xxxxx,
 https://mega.nz/folder/xxxxx
-+++
+```
 
 </div>
 
@@ -990,9 +990,9 @@ https://mega.nz/folder/xxxxx
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 https://random-name.trycloudflare.com
-+++
+```
 
 </div>
 
@@ -1000,14 +1000,14 @@ https://random-name.trycloudflare.com
 
 <div dir="ltr" markdown="1">
 
-+++
+```
 "exit_node": {
   "enabled": true,
   "provider": "vps",
   "url": "https://random-name.trycloudflare.com",
   "psk": "همان_رمز_مخفی"
 }
-+++
+```
 
 </div>
 
