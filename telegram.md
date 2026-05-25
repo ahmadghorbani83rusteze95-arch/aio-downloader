@@ -7,6 +7,189 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 22:23
+---
+
+## WithYashar — post 12453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو:جنگ تمام عیار در لبنان از امشب آغاز خواهد شد
+@withyashar
+</div>
+
+## WithYashar — post 12452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایسنا: با توجه به تایید مصوبه بازگشت اینترنت به وضعیت قبل از دی‌ماه ۱۴۰۴ از سوی رئیس‌جمهور و ابلاغ آن به وزارت ارتباطات، انتظار می‌رود این دستور فردا اجرایی شود
+@withyashar
+</div>
+
+## mwarmonitor — post 9708
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9708_1779735228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️ساعت ۱۹:۳۳ به وقت محلی— SAM 535 — یک فروند C-32A به شماره 98-0002 از پایگاه KADW (اندروز) به مقصد ETAR (رامشتاین) برخاسته و در مسیر به نقطه KOK در حال حرکت است؛ با London Control روی فرکانس 132.840 ارتباط دارد.
+
+📌احتمالا ویتکاف و کوشنر در این پرواز هستند در مسیر اسرائیل
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342241
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342241_1779735229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Ilhan Omar responding to Nancy Mace’s new proposal to ban foreign-born American from serving in Congress or holding other major political positions in the United States.
+
+When asked about the bill, the Minnesota congresswoman who was born in Somalia shrugged off the move, telling Fox News Digital “Good luck to [Nancy Mace].”
+
+The amendment would require members of Congress, federal judges, and Senate-confirmed officials to be natural-born citizens — the same standard currently applied to presidents and vice presidents.
+
+Omar, who was born in Somalia and became a U.S. citizen in 2000, was one of the lawmakers Mace specifically pointed to when unveiling the proposal.
+</div>
+
+## pm_afshaa — post 91480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فرماندهی شمال ارتش اسرائیل:
+ارتش اسرائیل دیگر نمی‌تواند وضعیت فعلی لبنان را تحمل کند،جنگ از همین امشب آغاز خواهد شد،
+جنوب لبنان و بیروت و هرکجا که حزب الله حضور داشته باشد بمباران خواهد شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو:جنگ تمام عیار در لبنان از امشب آغاز خواهد شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91478
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه برای کانفیگ هزینه نکن
+🚨 با این ربات کانفیگ رایگان دریافت کن
+👇
+📶 @Freeconfigbbot 
+✅
+</div>
+
+## pm_afshaa — post 91477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه برای کانفیگ هزینه نکن
+🚨
+
+با این ربات کانفیگ رایگان دریافت کن
+👇
+📶
+@Freeconfigbbot 
+✅
+</div>
+
+## Persian_Trend_Official — post 14967
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14967_1779735231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رافی میلوا، فرمانده نیروهای شمال اسرائیل:
+
+«ارتش اسرائیل دیگر نمی‌تواند وضعیت فعلی لبنان را تحمل کند. جنگ از همین امشب تشدید خواهد شد و حزب‌الله، جنوب لبنان، بیروت و هر جایی که هر تروریست از این گروه حضور دارد، بهای آن را خواهند پرداخت!»
+
+پ.ن: مثل اینکه آمریکا و ج.ا توی همون بند اول که پایان جنگ در تمام جبهه ها بود گیر کرده اند. 😂
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14966
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت 23 لایو داریم
+</div>
+
+## alonews — post 122644
+
+<div align="center">
+  <a href="telegram/content/alonews_122644_1779735231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚫
+🏆 به دنیای هیجان‌انگیز فوتبال خوش اومدی!
+
+
+⭐️اینجا قراره باهم لحظه‌به‌لحظه‌ی جام جهانی رو زندگی کنیم؛
+از بازی‌های حساس و نتایج داغ گرفته تا حاشیه‌ها، کری‌خونی‌ها و اتفاقاتی که همه درباره‌ش حرف میزنن! 
+🔥
+🔥
+
+
+✅ پوشش کامل مسابقات
+
+💀 ترول تیم‌ها و بازیکن‌ها
+
+🎥 ویدیوها و لحظه‌های فان فوتبالی
+
+📊 آمار، ترکیب‌ها و اخبار فوری
+
+🌍 حواشی جذاب از سراسر جام جهانی
+
+
+📢اینجا فقط یک کانال خبری نیست؛
+یک جمع فوتبالیه برای کسایی که فوتبال رو با هیجان، شوخی و احساس واقعی دنبال میکنن 
+📛
+💟
+
+
+🆘
+🔞 آماده باش چون قراره جام جهانی رو متفاوت تجربه کنیم!
+
+
+⚡ @Vaarzesh_Plus
+
+⚡ @Vaarzesh_Plus
+</div>
+
+## alonews — post 122643
+
+<div align="center">
+  <a href="telegram/content/alonews_122643_1779735232.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وزیر امور خارجه روسیه، سرگئی لاوروف، در تماس تلفنی با مارکو روبیو، وزیر امور خارجه آمریکا، اعلام کرد که نیروهای روسی حملات سیستماتیکی به اهداف نظامی در کی‌یف انجام خواهند داد.
+
+
+🔴 لاوروف همچنین از آمریکا خواست تا کارکنان دیپلماتیک آمریکایی را از پایتخت اوکراین تخلیه کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 22:13
 ---
 
