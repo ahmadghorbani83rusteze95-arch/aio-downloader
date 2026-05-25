@@ -7,6 +7,190 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 22:33
+---
+
+## VahidOOnLine — post 242165
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مسعود پزشکیان، روز دوشنبه چهارم خرداد ماه، در بازدید از سازمان صدا و سیمای جمهوری اسلامی گفت از اینکه سخنی بگوید که خلاف جهت «رهبری» باشد اجتناب می‌کند «چراکه این مصیبت بزرگی است.»
+پزشکیان همچنین به مدیران صدا و سیما گفت ایجاد اختلاف میان دولت، مجلس و دیگر نهادها به نفع مخالفان جمهوری اسلامی خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242164
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242164_1779735828.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، دوشنبه اعلام کرد اسرائیل در حال جنگ با حزب‌الله است، متوقف نخواهد شد و حملات خود علیه این گروه در لبنان را تشدید خواهد کرد.
+
+همزمان ارتش اسرائیل اعلام کرد که به زیرساخت‌های حزب‌الله در منطقه بقاع لبنان و چندین منطقه دیگر حمله کرده است.
+
+پیش‌تر کانال ۱۲ اسرائیل به نقل از یک مقام ارشد اسرائیلی گزارش داد اسرائیل از سیاست «مهار و تحمل» خارج می‌شود و تصمیم گرفته ضربات قابل‌توجهی به حزب‌الله وارد کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242163
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در سخنرانی روز یادبود (Memorial Day) در گورستان ملی آرلینگتون، از ۱۳ نظامی آمریکایی کشته‌شده در ارتباط با جنگ ایران تجلیل کرد و گفت آن‌ها جان خود را برای جلوگیری از دستیابی تهران به سلاح هسته‌ای فدا کرده‌اند.
+ترامپ گفت: «در عملیات خشم حماسی ما ۱۳ روح فوق‌العاده را از دست دادیم.» او افزود این نیروها جان خود را فدا کردند تا «بزرگ‌ترین حامی تروریسم دولتی در جهان هرگز به سلاح هسته‌ای دست پیدا نکند.»
+ترامپ همچنین تاکید کرد جمهوری اسلامی «هرگز به سلاح هسته‌ای دست نخواهند یافت.»
+خانواده کاپیتان آریانا ساوینو، یکی از نظامیان کشته‌شده آمریکایی که در سقوط یک هواپیمای سوخت‌رسان در عراق جان باخت، در مراسم حضور داشتند و ترامپ از آن‌ها خواست بایستند تا مورد تقدیر قرار گیرند.
+ترامپ در پایان با یادآوری اینکه این نیروها «بیهوده جان نداده‌اند» افزود آمریکا در نهایت به «پیروزی» خواهد رسید.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342242
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342242_1779735828.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Nearly $7,000 of merchandise gone in just a few minutes.
+
+Surveillance video captures a suspect breaking into an Arizona card shop and making off with thousands of dollars in rare Pokémon cards and collectibles.
+
+Investigators say the burglary caused heavy damage to the store, with nearly $7,000 in merchandise stolen, and the suspect hasn’t been identified.
+
+Store owners across the country have been warning about a rise in targeted Pokémon card thefts as the collectibles market keeps exploding in value.
+</div>
+
+## pm_afshaa — post 91482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو:جنگ تمام عیار در لبنان از امشب آغاز خواهد شد 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لاوروف از مارکو روبیو خواست سفارت ایالات متحده در کیف را تخلیه کند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338971
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338971_1779735830.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، دوشنبه اعلام کرد اسرائیل در حال جنگ با حزب‌الله است، متوقف نخواهد شد و حملات خود علیه این گروه در لبنان را تشدید خواهد کرد.
+
+همزمان ارتش اسرائیل اعلام کرد که به زیرساخت‌های حزب‌الله در منطقه بقاع لبنان و چندین منطقه دیگر حمله کرده است.
+
+پیش‌تر کانال ۱۲ اسرائیل به نقل از یک مقام ارشد اسرائیلی گزارش داد اسرائیل از سیاست «مهار و تحمل» خارج می‌شود و تصمیم گرفته ضربات قابل‌توجهی به حزب‌الله وارد کند.
+https://iranintl.com/202605257245
+</div>
+
+## DW_Farsi — post 125142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 رییس جمهور مکزیک با اقامت تیم فوتبال ایران در این کشور موافقت کرد
+
+به گفته کلودیا شینباوم، رئیس‌جمهور مکزیک، دولت او موافقت کرده که تیم ملی فوتبال ایران در طول رقابت‌های جام جهانی ۲۰۲۶ در مکزیک اقامت داشته باشد. به گفته او، آمریکا تمایلی به میزبانی این تیم نداشته است.
+
+به گزارش خبرگزاری رویترز، او گفت که فدراسیون بین‌المللی فوتبال (فیفا) پس از آن که آمریکا اعلام کرد، نمی‌خواهد تیم ایران در طول مسابقات در خاک این کشور مستقر باشد، به دولت او مراجعه کرد.
+
+شینباوم در یک نشست خبری در روز دوشنبه چهارم خرداد گفت: «هیچ دلیلی نمی‌بینیم که امکان اقامت در مکزیک را از آن‌ها دریغ کنیم.»
+
+رویترز می‌نویسد، تا کنون کاخ سفید و وزارت خارجه آمریکا به درخواست‌ها برای اظهار نظر در این‌باره پاسخی نداده‌اند.
+
+پیش از این در روز شنبه دوم خرداد مهدی تاج، رئیس فدراسیون فوتبال ایران گفته بود که محل استقرار تیم ملی در جریان این رقابت‌ها از ایالت آریزونای آمریکا به شهر مرزی تیخوانا در مکزیک منتقل خواهد شد.
+
+حضور تیم ملی ایران در این رقابت‌ها که از ۲۱ خرداد تا ۲۸ تیر (۱۱ ژوئن تا ۱۹ ژوئیه) برگزار می‌شود، پس از حملات آمریکا و اسرائیل به ایران در اواخر فوریه، با ابهام مواجه شده بود.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 20750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری
+
+نتانیاهو: من دستور دادم حزب‌الله نابود شه. جنگ تمام عیار امشب در لبنان آغاز می‌شه
+
+@IranianMinds
+</div>
+
+## Hranews — post 113162
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقدان ایمنی کار؛ مرگ و مصدومیت ۳ کارگر در یزد و پاکدشت
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– در سایه فقدان ایمنی محیط و شرایط نامناسب کار، روز جاری، دو کارگر در پاکدشت در پی حادثه آتش‌سوزی مصدوم شدند. از سوی دیگر، روز یکشنبه ۳ خردادماه، یک #کارگر در یزد، حین انجام کار بر اثر برق‌گرفتگی جان خود را از دست داد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 122647
+
+<div align="center">
+  <a href="telegram/content/alonews_122647_1779735830.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈‏ظرفیت فروش لکسوس ال‌ایکس ۶۰۰ با قیمت ۱۱۰ میلیارد تومان، زیر ۱۰ دقیقه تکمیل شد!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122646
+
+<div align="center">
+  <a href="telegram/content/alonews_122646_1779735830.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کلش ریپورت: وزیر امور خارجه روسیه به وزیر امور خارجه آمریکا گفت که مسکو برنامه‌ریزی‌ای برای «حملات سیستماتیک» به کی‌یف دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122645
+
+<div align="center">
+  <a href="telegram/content/alonews_122645_1779735831.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت رسایی درباره وصل شدن اینترنت!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 22:23
 ---
 
