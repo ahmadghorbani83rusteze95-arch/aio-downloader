@@ -7,6 +7,138 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 23:33
+---
+
+## FoxNewsTwitter — post 342245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The streets of D.C. filled with flags, music, and special tributes as crowds gathered for the annual Memorial Day parade.
+
+This year’s event also featured America250 celebrations ahead of the nation’s 250th anniversary.
+</div>
+
+## pm_afshaa — post 91485
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91485_1779739418.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آموزش و پرورش:
+امتحانات پایه‌های یازدهم و دوازدهم از 21 تیرماه به صورت حضوری برگزار میشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338981
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338981_1779739418.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی صدرزاده، تحلیل‌گر مسائل خاورمیانه، گفت: «دلیل تاکید دونالد ترامپ بر پیوستن کشورهای عربی به پیمان ابراهیم این است که می‌خواهد این پیام را منتقل کند که آن‌ها نباید انتظار داشته باشند آمریکا از آن‌ها دفاع کند.» او افزود از نظر ترامپ، کشورهای عربی بهتر است با اسرائیل همکاری کنند تا از امکانات و توان دفاعی آن بهره‌مند شوند.
+@iranintltv
+</div>
+
+## FarsiVOA — post 218643
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزارت خارجه آمریکا: «حزب‌الله» مسئول اصلی بحران کنونی در لبنان است
+
+▪️وزارت خارجه ایالات متحده می‌گوید که گروه شبه‌نظامی «حزب‌الله» با ادامه حملات علیه اسرائیل و نقض آتش‌بس، مسئول اصلی بحران جاری در لبنان است، و عملا تلاش می‌کند مسیر صلح، بازسازی، و تثبیت حاکمیت دولت لبنان را نابود کند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/state-department-says-hezbollah-entirely-responsible-for-current-crisis-in-lebanon/8153718.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از عملیات پیکان های آتش
+
+
+
+👩‍💻@PhantomDirective
+
+
+📣@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14980
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14980_1779739420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترافیک سنگین در منطقه الحازمیه لبنان در پی موج خروج ساکنان ضاحیه
+
+▪️ گزارش‌ها از ترافیک شدید در منطقه الحازمیه در حومه بیروت خبر می‌دهند
+
+▪️ این وضعیت در پی جابه‌جایی گسترده ساکنان ضاحیه جنوبی بیروت ایجاد شده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14979
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14979_1779739421.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇱🇧
+🇮🇱شلیک موشک پدافندی از جنوب لبنان به سمت جنگنده های اسرائیلی
+</div>
+
+## IranianMinds — post 20752
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 احتمالاً ترامپ در ازای این تفاهم‌نامه موقت ۶۰ روزه به نتانیاهو آزادی عمل بیشتری در جبهه لبنان داده است زیرا اسرائیل در حال گسترش قابل توجه عملیات نظامی خود در لبنان است/کانال 12 اسرائیل
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282038
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282038_1779739422.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین خبرهای مهم روز دوشنبه ۴ خرداد ماه ۱۴۰۵ از تلویزیون بی‌بی‌سی فارسی
+
+https://bbc.in/42XnQmy
+https://bbc.in/3WtLd3k
+@BBCPersian
+</div>
+
+## alonews — post 122662
+
+<div align="center">
+  <a href="telegram/content/alonews_122662_1779739424.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منبع نظامی به تسنیم:
+اسرائیل هفته های پیش حمله پهبادی به امارات کرده بندازه گردن ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 23:23
 ---
 
