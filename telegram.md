@@ -7,6 +7,224 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 01:02
+---
+
+## VahidOOnLine — post 242188
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242188_1779744777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تابناک بامداد سه‌شنبه، پنجم خردادماه، گزارش داد: «باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت». پیش از این فارس، خبرگزاری وابسته به سپاه پاسداران از شنیده‌شدن چند انفجار در بندرعباس و حوالی سیریک و جاسک خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12482
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاآرتص: جرقه زده شد
+@withyashar
+</div>
+
+## WithYashar — post 12481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش مشاهده چند موشک ۳ پا در آسمان یزد
+@withyashar
+</div>
+
+## WithYashar — post 12480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برابر گزارش‌ها، پرتاب موشک از قم.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Construction is officially underway at the White House for UFC Freedom Fights 250.
+
+Workers were seen assembling what appeared to be part of a lighting structure Monday as crews build out a temporary arena expected to hold roughly 5,000 invited guests.
+
+The June 14 card is believed to be the first professional sporting event ever held at the White House — and it lands on President Trump’s 80th birthday.
+</div>
+
+## pm_afshaa — post 91501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی وقته خبر جنگ نبوده کانالا جوگیر شدن یکم
+</div>
+
+## pm_afshaa — post 91500
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91500_1779744778.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری مهر: منشا صدای انفجار شرق بندرعباس بوده.
+
+اوضاع شهر، کاملا تحت کنترله و جای هیچگونه نگرانی برای مردم بندرعباس نیست. به شایعات منتشر شده در فضای مجازی توجه نکنید؛ هنوز منابع رسمی در این خصوص اظهار نظری نکردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91499
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91499_1779744778.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تو اصفهان هم گزارش پرواز پهباد داده شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338991
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338991_1779744779.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «علنی شدن رقم ۱۲ میلیارد دلاری پول‌های توقیف‌شده در قطر، بار دیگر این واقعیت را نشان داد که در مبادلات بانکی، فروش غیر رسمی نفت و دور زدن تحریم‌ها بخش زیادی از درآمدهای ملی حیف‌ومیل می‌شود و به‌دلیل پنهانی بودن معاملات، امکان سوءاستفاده و بالا کشیدن درآمدهای نفتی توسط فرماندهان سپاه و باندهای آنها وجود دارد.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15007
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15007_1779744780.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دود بلند شده از فرودگاه بندرعباس
+</div>
+
+## Persian_Trend_Official — post 15006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+(غیر رسمی)دو قایق تندرو نیروی دریایی سپاه توسط جنگنده‌های آمریکایی در خلیج فارس هدف قرار گرفتند و چهار نیرو کشته شدند. این خبر تایید یا تکذیب نمی‌شود . 👩‍💻@PhantomDirective 🆔@persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه جا زده فوری ترور ‌‌‌هدفمند در بابل
+
+ی جا زده فوری تست بمب اتم در اصفهان
+
+یکی زده قایق های تندرو سپاهو‌ زدن ۴ نفرم کشته شدن
+
+یکی زده بمب اتم زدن رو تهران
+
+فازتون چیه نمیفهمم
+</div>
+
+## IranianMinds — post 20768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خبرگزاری مهر :
+
+شایعات فضای مجازی رو‌ باور نکنید منشا انفجار در بندرعباس هنوز مشخص نیست.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390190
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390190_1779744781.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌اکنون بندرعباس
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390189
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا الان شک داشتم جنگ شده یا نه که یادم اومد امروز عراقچی برای مذاکرات رفته بود قطر.
+
+قدرت مذاکره :))
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390188
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390188_1779744781.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهر: اوضاع شهر، کاملاً تحت کنترل است
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بابلسر صدای انفجار
+
+🔻اصفهان صدای انفجار
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122682
+
+<div align="center">
+  <a href="telegram/content/alonews_122682_1779744782.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووووووووووووووووووووری
+</div>
+
+## alonews — post 122681
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوووووووووووووووووووووووووووری
+</div>
+
+## alonews — post 122680
+
+<div align="center">
+  <a href="telegram/content/alonews_122680_1779744782.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فوری/پرواز جنگنده‌های آمریکایی در مرز ایران 
+🚨 @AkhbareFouri
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 00:52
 ---
 
