@@ -7,6 +7,86 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 02:12
+---
+
+## FoxNewsTwitter — post 342285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The White House lawn is starting to look different as construction continues on the UFC Freedom 250 arena at the White House.
+
+Crews are now building out the event site as President Trump moves forward with plans to host the UFC spectacle on White House grounds.
+
+The event is expected to blend politics, patriotism, and one of the biggest brands in combat sports in a way Washington has never seen before.
+</div>
+
+## FarsiVOA — post 218750
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺لیندزی گراهام: پاکستان به درخواست رئیس جمهوری آمریکا برای پیوستن به پیمان ابراهیم باید پاسخی بدهد
+
+▪️لیندزی گراهام، سناتور جمهوری‌خواه آمریکایی روز سه‌شنبه ۵ خرداد در شبکه اجتماعی ایکس بار دیگر از میانجی‌گری پاکستان در خصوص عملیات مشترک آمریکا و اسرائيل علیه جمهوری اسلامی انتقاد کرد و اسلام‌آباد را تلویحا یک میانجی‌ بی‌طرف ندانست.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8154197.html
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15091
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣 لطفا تا جایی که میتونین اپ های گوشی و کامپیوتر یا لپ‌تاپ، اپ های خود سیستم و سیستم عامل رو آپدیت کنید.
+
+❗️ اپ های قدیمی ریسک امنیتی بیشتری دارن.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20848
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20848" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرور فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول مخابرات
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282132
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک شب پس از آن که فرماندهی مرکزی نیروی دریایی آمریکا - سنتکام - از حمله به چند سایت پرتاب موشک و قایق تندرو ایران در نزدیکی سواحل بندرعباس و تنگه هرمز خبر داد و آن را «حمله تدافعی» خواند، وزارت خارجه ایران با صدور بیانیه‌ای این اقدام را «نقض فاحش آتش‌بس»…
+</div>
+
+## alonews — post 122957
+
+<div align="center">
+  <a href="telegram/content/alonews_122957_1779835331.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کی‌سی‌ان‌ای، رسانه دولتی کره شمالی: کره شمالی آزمایشی از سیستم پرتاب موشک چندمنظوره جدید انجام داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 02:02
 ---
 
