@@ -7,6 +7,131 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 18:13
+---
+
+## WithYashar — post 12567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوش اومدین ولی‌ لطفا تک تک پیغام ندید که وصل شدید 🙌🏾
+</div>
+
+## mwarmonitor — post 9748
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وال‌استریت ژورنال: نیروی دریایی آمریکا هدایت کشتی‌ها از طریق تنگه هرمز را از سر گرفته است.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342264
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342264_1779806634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+An Army veteran known locally for decorating his California home with pro-Trump banners and American flags has died days after a brutal assault outside the property, authorities said.
+
+Kerry Sheron, 69, was allegedly attacked by a 32-year-old Navy veteran in what prosecutors described as an unprovoked beating.
+
+The suspect, Thomas Caleb Butler, has pleaded not guilty and remains behind bars as prosecutors weigh upgraded charges following Sheron’s death. Authorities have not confirmed a political motive at this time.
+</div>
+
+## DEJradio — post 4994
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ لاپید: توافق احتمالی تهران و واشینگتن اهداف اسرائیل از جنگ را برآورده نمی‌کند
+
+یائیر لاپید، رهبر مخالفان دولت مستقر اسرائیل گفت تفاهمی که میان آمریکا و جمهوری اسلامی در حال شکل‌گیری است، برای اسرائیل، منطقه و مردم ایران توافقی بد به شمار می‌رود.
+نخست‌وزیر پیشین اسرائیل گفت این توافق هیچ‌یک از اهداف اعلام‌شدۀ اسرائیل از جنگ، از جمله نابودی برنامۀ موشکی و هسته‌ای جمهوری اسلامی و پایان پشتیبانی تهران از گروه‌های نیابتی را برآورده نمی‌کند.
+رهبر مخالفان دولت نتانیاهو تأکید کرد کشورش باید آزادی عمل خود را در موازات با عملکرد دولت ایالات متحده، حفظ کند.
+مقامات آمریکایی پیش‌تر تأکید کردند توافق با جمهوری اسلامی یا کامل و معنادار انجام می‌شود، یا هیچ توافقی در کار نیست.
+
+#خبر #دژ #مذاکرات #اسرائیل
+@DEJradio
+</div>
+
+## IranIntlTV — post 339109
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339109_1779806635.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه ۵ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339108
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه ۵ خرداد
+@iranintltv
+</div>
+
+## IranianMinds — post 20815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدا و سیما از پایان مذاکرات هیئت ایرانی به ریاست قالیباف در دوحه و بازگشت آن به تهران خبر داد.
+
+@IranianMinds
+</div>
+
+## alonews — post 122839
+
+<div align="center">
+  <a href="telegram/content/alonews_122839_1779806637.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وال استریت ژورنال: به گفته مقامات نظامی آمریکا، نیروی دریایی ایالات متحده کمک به عبور کشتی‌ها از تنگه هرمز را دوباره آغاز کرده است.
+
+
+🔴این مقامات به وال‌استریت ژورنال گفتند که یک ابرنفتکش یونانی حامل دو میلیون بشکه نفت خام، هنگام عبور از این آبراه در سواحل عمان، توسط نیروی دریایی آمریکا هدایت شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122838
+
+<div align="center">
+  <a href="telegram/content/alonews_122838_1779806637.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 طبق گزارش نیویورک پست، انتظار می‌رود دونالد ترامپ فردا برای یک جلسه نادر کابینه به کمپ دیوید سفر کند، زیرا مذاکرات با ایران به مرحله‌ای حساس نزدیک شده است
+
+
+🔴 انتظار می‌رود تمام اعضای کابینه، از جمله تولسی گابارد، مدیر خروجی اطلاعات ملی، در این جلسه در محل استراحت ریاست‌جمهوری حضور داشته باشند، هرچند ممکن است به دلیل شرایط جوی شدید در منطقه واشنگتن، مکان جلسه تغییر کند.
+
+
+🔴 انتظار می‌رود بحث‌ها بر روی ایران، دستاوردهای اخیر دولت در زمینه اقتصاد، کسب‌وکارهای کوچک، تلاش‌های ضد تقلب و تحولات سیاست خارجی متمرکز باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122837
+
+<div align="center">
+  <a href="telegram/content/alonews_122837_1779806638.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 جنگنده‌های اسرائیلی حمله‌ای هوایی به سد قراون در دره بقاع جنوبی لبنان انجام دادند.
+
+
+🔴 سد قراون بزرگترین سد این کشور است و به عنوان منبع اصلی تولید برق آبی، آبیاری و آب آشامیدنی عمل می‌کند و ظرفیت تولید برق آن حدود ۱۹۰ مگاوات است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 18:03
 ---
 
