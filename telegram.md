@@ -7,6 +7,134 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 22:13
+---
+
+## VahidOOnLine — post 242335
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242335_1779821002.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روابط عمومی نیروی دریایی سپاه پاسداران اعلام کرد طی ۲۴ ساعت گذشته، ۲۵ کشتی شامل نفتکش، کشتی‌های کانتینربر و شناورهای تجاری، پس از دریافت مجوز و با هماهنگی این نیرو از تنگه هرمز عبور کرده‌اند.
+در بیانیه منتشرشده در روز سه‌شنبه پنجم خردادماه، آمده است که «کنترل هوشمند تنگه هرمز با اقتدار ادامه دارد» و هرگونه اقدام یا «تجاوز» احتمالی با واکنش شدید روبه‌رو خواهد شد.
+این اظهارات در حالی مطرح می‌شود که تنش‌ها در منطقه خلیج فارس افزایش یافته است. ساعاتی پیش از انتشار این بیانیه، مارکو روبیو، وزیر خارجه ایالات متحده آمریکا، تاکید کرده بود واشینگتن باز ماندن تنگه هرمز را «به هر طریقی» تضمین خواهد کرد.
+روبیو همچنین گفته بود هیچ کشوری، از جمله چین و روسیه، با ایجاد محدودیت یا دریافت عوارض برای عبور کشتی‌ها از این شاهراه مهم انرژی جهان موافق نیستند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیروی دریایی ۳پا: کنترل هوشمند تنگهٔ هرمز با اقتدار درحال انجام است و هرگونه تجاوز با ضربات کوبنده پاسخ داده خواهد شد.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342277
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342277_1779821002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: VP Vance outlines the billions of dollars in fraud that has been stolen from the American people that his task force has uncovered over the last two months:
+
+"We referred over $22 billion in fraudulent small business loans back to the Treasury for collection. We deferred more than $1.3 billion in fraudulent Medicaid reimbursements."
+
+"We recovered taxpayer funds from the $135 billion stolen after the floodgates were opened in the immediate aftermath of COVID. We have found $6.3 billion in suspected fraudulent government contracts, which were mostly awarded during the last administration."
+</div>
+
+## FarsiVOA — post 218732
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218732_1779821004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل ویدیویی از فعالیت نیروهایش در طول نبرد بیت حانون منتشر کرده است.
+
+بنابر بیانیه ارتش اسرائیل منطقه بیت حانون در شمال نوار غزه یکی از کانون‌های اصلی و پیچیده نبرد در جریان عملیات زمینی بود و تعدادی از نیروهای این ارتش «در دفاع از شهرک‌های نگب غربی و در چارچوب شکست گردان بیت حانون جان خود را از دست دادند.»
+
+ارتش اسرائیل اعلام کرد این منطقه به یکی از پایگاه‌های اصلی سازمان تروریستی حماس تبدیل شده بود و تروریست‌های این سازمان از زیرساخت‌هایی که در دل جمعیت غیرنظامی تعبیه شده بود، فعالیت می‌کردند.
+
+به گفته ارتش اسرائیل زیر خانه‌های مسکونی، مراکز عمومی و مسیرهای تردد، شبکه‌ای گسترده از تونل‌ها ایجاد شده بود که برای اجرای عملیات‌های تروریستی علیه شهروندان و نیروهای ارتش اسرائیل استفاده می‌شد.
+</div>
+
+## FarsiVOA — post 218731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی جوانمردی: آیندە مردم ایران پس از توافق احتمالی آمریکا با جمهوری اسلامی
+</div>
+
+## DW_Farsi — post 125171
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125171_1779821006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نشست کم‌سابقه ترامپ و کابینه‌اش در کمپ‌ دیوید فردا برگزار خواهد شد
+
+در حالی که مذاکرات با ایران به مرحله‌ای حساس رسیده است یک مقام کاخ سفید به خبرگزاری فرانسه گفت، دونالد ترامپ، رئیس‌ جمهور آمریکا فردا چهارشنبه ۲۷ مه جلسه کابینه را در اقدامی نادر در کمپ دیوید، اقامت‌گاه ریاست جمهوری برگزار خواهد کرد.
+
+انتخاب این اقامتگاه دورافتاده در کوه‌های ایالت مریلند که ترامپ برخلاف رئیس‌جمهوران پیشین، به‌ندرت از آن استفاده می‌کند، نشان‌دهنده حساس بودن این گفت‌وگوها است.
+
+روزنامه "نیویورک پست" نیز گزارش داد که انتظار می‌رود موضوع ایران محور اصلی این جلسه باشد و تمامی اعضای کابینه در جلسه شرکت کنند. همچنین گفته شده که وضعیت اقتصادی آمریکا هم در دستور کار قرار دارد.
+
+یک مقام کاخ سفید نیز در گفت‌وگو با شبکه خبری "سی‌ان‌بی‌سی" تأیید کرد که ترامپ روز چهارشنبه با تمامی اعضای کابینه خود در کمپ دیوید دیدار خواهد کرد.
+
+این خبر تنها چند ساعت بعد از حملات تازه ایالات متحده به ایران منتشر می‌شود که نگرانی‌ها در مورد توافق صلح را افزایش داده است.
+
+@dw_farsi
+</div>
+
+## Hranews — post 113186
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشی از تجمع اعتراضی مال‌باختگان پروژه «نگین غرب»
+
+
+❗️
+❗️
+❗️
+❗️
+❗️ – امروز سه‌شنبه ۵ خردادماه، گروهی از مال‌باختگان پروژه «نگین غرب» با برگزاری #تجمع اعتراضی در تهران، خواستار رسیدگی به مطالبات خود شدند.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ -  @Hranews  کانال هرانا 🆑
+</div>
+
+## alonews — post 122905
+
+<div align="center">
+  <a href="telegram/content/alonews_122905_1779821007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: تا الان بالای ۹۰ درصد مردم اینترنتشون وصل شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122904
+
+<div align="center">
+  <a href="telegram/content/alonews_122904_1779821007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: کشورهای منطقه فهمیده‌اند که اگر میزبان پایگاه‌های آمریکا باشند به‌شدت صدمه می‌بینند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 22:03
 ---
 
