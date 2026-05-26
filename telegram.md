@@ -7,6 +7,330 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 21:04
+---
+
+## VahidOOnLine — post 242319
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ اداره کل آمار عربستان سعودی روز سه‌شنبه، پنجم خردادماه، هم‌زمان با حضور زائران در صحرای عرفات، آمار رسمی و نهایی مناسک حج را منتشر کرد. بر اساس گزارش این نهاد، مجموع کل زائران حج در سال جاری به یک میلیون و ۷۰۷ هزار و ۳۰۱ نفر رسیده است. مقامات سعودی تایید کرده‌اند که بخش عمده این زائران را مسافران خارجی تشکیل می‌دهند که از کشورهای مختلف جهان برای این مراسم وارد عربستان شده‌اند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242318
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242318_1779816843.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در پیامی به مناسب عید قربان، نوشت که جمهوری اسلامی دست برادری به سوی کشورهای اسلامی دراز کرده و همزمان در صیانت از اقتدار خود ذره‌ای تردید ندارد.
+
+او پیش‌تر نیز تلفنی با سران قطر، مصر، عمان، مالزی، ترکیه و جمهوری آذربایجان، گفت‌وگو کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242317
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242317_1779816844.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کاظم غریب‌آبادی، معاون حقوقی و بین‌الملل وزارت خارجه جمهوری اسلامی، روز سه‌شنبه پنجم خردادماه اعلام کرد روند بررسی کنوانسیون رژیم حقوقی دریای خزر در نشست کمیسیون امنیت ملی و سیاست خارجی مجلس شورای اسلامی بررسی شده است.
+
+غریب‌آبادی گفت در این جلسه گزارشی از روند طی‌شده درباره این کنوانسیون در سطوح داخلی و خارجی و در چارچوب تعاملات میان کشورهای عضو ارائه کرده و درباره ابعاد حقوقی، سیاسی، امنیتی و اقتصادی آن با نمایندگان مجلس گفتگو شده است.
+
+او افزود لایحه مربوط به کنوانسیون رژیم حقوقی دریای خزر هم‌اکنون در دولت در حال بررسی است.
+
+معاون وزیر خارجه جمهوری اسلامی همچنین تاکید کرد دریای خزر برای ایران «بخشی از منافع راهبردی، امنیت ملی، همکاری‌های منطقه‌ای و حقوق تاریخی» کشور به شمار می‌رود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12590
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12590_1779816844.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارک لوین : «بی بی، برو بزن بترکونشون!»
+@withyashar
+</div>
+
+## WithYashar — post 12589
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت ها اوکی باشه لایو هم شروع میکنم که به امید خدا آخر هفته اگه زد زنده زارتان زورتان رو بگیرم 💥🌶️ این ۵ روز‌آینده بسیار روز های مهمیه ! ببینیم تکیفمون روشن میشههههههههه
+</div>
+
+## FoxNewsTwitter — post 342272
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342272_1779816845.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“Those are dangerous!”
+
+HHS Secretary RFK Jr. sharing a wild video of himself grabbing two black racer snakes off Dr. Mehmet Oz’s patio while his wife Cheryl Hines repeatedly warns him to stop.
+
+The snakes can be seen twisting around Kennedy’s hands and biting him multiple times while he tries to remove them from the property.
+</div>
+
+## FoxNewsTwitter — post 342271
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342271_1779816849.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @foxnewspolitics: Dave Portnoy torches Maine Senate candidate's strategist after the operative pitched a Red Sox-themed ad collab — then discovered Portnoy, who is Jewish, had zero interest in promoting a candidate with a Nazi-linked tattoo.
+
+The Barstool founder challenged Graham Platner to a 1-on-1 conversation and told strategist Jeff Coote to 'fire yourself for thinking I'd want to glamorize this clown.'
+
+Meanwhile, Fenway-owned NESN yanked Platner's anti-private-equity ad mid-game over intellectual property concerns.
+</div>
+
+## pm_afshaa — post 91556
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91556_1779816850.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 14 اسرائیل به نقل از منابع:
+حمله به ایران پس از دریافت «پیام مشخصی» از آمریکا، در این مرحله از دستور کار خارج شده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91555
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91555_1779816851.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صفحه‌ی اسرائیل به فارسی در X:
+پیام جدید رهبر نامرئی جمهوری اسلامی: اسرائیل تا 15 سال دیگر وجود نخواهد داشت.
+
+پدرش هم خیلی از این گنده‌گویی‌ها می‌کرد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91554
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91554_1779816852.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کانال 12 اسرائیل:
+آمریکا به اسرائیل هشدار داده که به هیچ شکلی به بیروت حمله نکنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91553
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91553_1779816852.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: معاینات شش‌ماهه‌ام رو انجام دادم، نتایجش کاملا عالی و مطلوب بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339129
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339129_1779816853.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در پیامی به مناسبت عید قربان، نوشت که جمهوری اسلامی دست برادری به سوی کشورهای اسلامی دراز کرده و همزمان در صیانت از اقتدار خود ذره‌ای تردید ندارد.
+
+او پیش‌تر نیز تلفنی با سران قطر، مصر، عمان، مالزی، ترکیه و جمهوری آذربایجان، گفت‌وگو کرد.
+https://iranintl.com/202605263908
+</div>
+
+## FarsiVOA — post 218725
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺شورای همکاری خلیج فارس: حزب‌الله با تمام اشکال و شاخه‌ها، یک گروه تروریستی به حساب می‌آید
+
+▪️به دنبال انتقاد نعیم قاسم دبیرکل گروه تروریستی حزب‌الله لبنان از اقدامات دولت بحرین، جاسم بدیوی دبیرکل شورای همکاری خلیج فارس، شامگاه شب گذشته ۴ خرداد ۱۴۰۵، ضمن محکوم کردن این سخنان، واکنش تندی به آن نشان داد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/bahrain-lebanon-hezbollah-iran-proxy-war-/8154099.html/?nocach=1
+</div>
+
+## RadioFarda — post 157586
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157586_1779816854.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸گزارش‌ها از ایران حاکی است که پس از برقراری اینترنت بین‌الملل روی برخی سرویس‌های ثابت، دسترسی کاربران تلفن همراه نیز به اینترنت جهانی به‌تدریج در حال بازگشت است.
+
+🔸منابع خبری داخلی روز سه‌شنبه گزارش دادند که کاربران از برقراری اینترنت بین‌الملل روی تلفن‌های همراه خود خبر داده‌اند. همزمان گزارش‌هایی نیز از دسترسی دوباره به چت‌جی‌پی‌تی روی خطوط همراه اول و ایرانسل منتشر شده است.
+
+🔸پیشتر وزارت ارتباطات اعلام کرده بود که «هماهنگی‌ها برای بازگشایی اینترنت همراه» در حال انجام است. معاون وزیر ارتباطات نیز روز سه‌شنبه گفته بود اینترنت همراه «امروز» وصل خواهد شد.
+
+🔸ایسنا هم گزارش داده است که کاربران سرویس‌های پهن‌باند ثابت، از جمله اف‌تی‌تی‌اچ، وی‌دی‌اس‌ال و ای‌دی‌اس‌ال، اکنون بدون محدودیت به شبکه جهانی اینترنت متصل هستند و «امکان استفاده کامل از وب‌سایت‌ها و خدمات بین‌المللی برای آن‌ها فراهم شده است.» همچنین گزارش شده «اتصال کامل» اینترنت بین‌الملل در مخابرات ایران برقرار شده است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20828
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20828" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول و مخابرات بقیه اینترنت ها هم تست کنید
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20827
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها نگران حجم نباشید نامحدوده شیر بدید فقط بقیه وصل شن کارشون راه بیوفته
+</div>
+
+## IranianMinds — post 20826
+
+<div align="center">
+  <a href="https://t.me/IranianMinds/20826" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فوق العاده پرسرعت و قوی مخصوص اینستا و یوتیوب سرعت فضایی مخصوص همراه اول و مخابرات بقیه اینترنت ها هم تست کنید
+
+آموزش اتصال در اندروید
+
+آموزش اتصال در آیفون
+
+حتما شیر بدید بقیه هم متصل شن لطفا دانلود سنگین هم نزنید ❤️‍🔥
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282123
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282123_1779816856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فرماندهی مرکزی ارتش ایالات متحده، سنتکام، گزارش رسانه‌ها درباره همراهی کشتی‌های تجاری برای عبور در تنگه هرمز را تکذیب کرده است.
+
+این نهاد در پیامی که در شبکه اجتماعی ایکس منتشر کرده، نوشته است گزارش‌های اخیر رسانه‌ها درباره ازسرگیری اسکورت یا کمک به کشتی‌های تجاری در حین عبور از تنگه هرمز توسط ارتش ایالات متحده «نادرست» است.
+
+در ادامه این پیام آمده است «پروژه آزادی از سر گرفته نشده است و نیروهای آمریکایی در حال حاضر، کشتی‌های تجاری را در تنگه هرمز اسکورت نمی‌کنند.»
+
+آمریکا «پروژه آزادی» را پس از تلاش برای شکستن بن‌بست تنگه هرمز معرفی کرده بود.
+
+این طرح یک روز پس از راه‌اندازی تعلیق شد.
+
+@BBCPersian
+📷 Getty Images
+</div>
+
+## alonews — post 122885
+
+<div align="center">
+  <a href="telegram/content/alonews_122885_1779816857.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈صدا و سیما شروع کرده به صورت رگباری داره گزارش میده که اینترنت نباید وصل می‌شده و اشتباهه
+
+
+🔴حتی به عارف که گفته بود به‌خاطر یه راننده نباید اتوبان رو بست تیکه انداخت و گفت اتوبان قبلش باید ساماندهی بشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122884
+
+<div align="center">
+  <a href="telegram/content/alonews_122884_1779816857.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 نیروهای دفاعی اسرائیل دستورهای جدید تخلیه اجباری برای چندین شهر در سراسر جنوب لبنان صادر کرده‌اند:
+
+🔴— خیرابت سلم
+
+🔴— بیر السناسیل، قابریخا
+
+🔴— مجدل سلم
+
+🔴— قالاویه
+
+🔴— کفر دونین
+
+🔴— تولین
+
+🔴— ساوانا
+
+🔴— صلعا (صور)
+
+🔴— برج قالاویه
+
+🔴— جبیشیت
+
+🔴— القصیبہ (نبطیه)
+
+🔴— فرون
+
+🔴— ابیا
+
+🔴— دیر کیفه
+
+🔴— کفر سعیر
+
+🔴— صریفا
+
+🔴— الغندوریه
+
+🔴— النفخیه
+
+🔴— ققیات الجسر
+
+🔴— عدشیت الشقیف
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 20:53
 ---
 
