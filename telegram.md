@@ -7,6 +7,164 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 20:23
+---
+
+## WithYashar — post 12705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو :اگر ایران توافق قابل قبولی مارو امضا نکند جنگ را شروع خواهیم کرد این‌خواسته ترامپ است
+@withyashar
+</div>
+
+## mwarmonitor — post 9830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸هشدار درباره اینکه روسیه در حال آماده‌سازی یک کارزار گسترده‌تر از حملات موشک‌های بالستیک علیه شهرهای اوکراین است، ولودیمیر زلنسکی در نامه‌ای به ترامپ و کنگره آمریکا خواستار گسترش ارسال سامانه‌های موشکی پاتریوت شد. CBS
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342315
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342315_1779900794.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Sec. Rubio gives an update on the "three phase" process playing out in Venezuela:
+
+"Over 10 million barrels of Venezuelan oil have been delivered to the United States since the 3rd of January. That industry is being professionalized for the first time ever. It's going to the benefit of the Venezuelan people."
+
+"They are selling oil in the market at market rates. The money is going to an account in the United States, controlled and monitored by Treasury, audited by KPMG. And it's, for the first time ever, the money is not being stolen. It's going to the benefit of the Venezuelan people."
+</div>
+
+## FoxNewsTwitter — post 342314
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342314_1779900796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: VP Vance details healthcare fraud findings to President Trump, sharing tragic stories of fraudsters taking advantage of elderly Americans and the Medicaid system:
+
+VP VANCE: "Not only do you have an American taxpayer who's paying into these programs, you have an elderly citizen deprived of his dignity because we're not going out for the fraudsters. Well, now we are."
+
+PRESIDENT TRUMP: "How much money did he get?"
+
+VP VANCE: "Sir, hundreds of thousands of dollars, maybe more than that, but we think that that exact type of fraud has been replayed all over our country."
+</div>
+
+## FoxNewsTwitter — post 342313
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342313_1779900798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trumps taps in Secretary Rubio, who's "doing a fantastic job," for an update on negotiations with Iran:
+
+"If recent events have done anything, it's just reminded us once again that they are the world's leading sponsor of terrorism, and they can never have a nuclear weapon."
+
+"Mr. President, your preference you've told us repeatedly, as always, to negotiate these things and to figure out if you can have agreements. Diplomacy is always the first option, and we continue to work on that through your envoys..." - Secretary Rubio
+</div>
+
+## IranIntlTV — post 339273
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339273_1779900800.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، چهارشنبه ۶ خرداد
+
+@iranintltv
+</div>
+
+## DW_Farsi — post 125208
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125208_1779900801.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ایران: پیش‌نویس تفاهم‌نامه با آمریکا را دریافت کردیم؛ کاخ سفید تکذیب کرد
+
+صداوسیمای جمهوری اسلامی ایران گزارش داد که تهران پیش‌نویس چارچوب اولیه و غیررسمی یک یادداشت تفاهم با آمریکا را جهت پایان دادن به میان درگیری دو کشور دریافت کرده است.
+
+طی این گزارش، بر اساس این چارچوب، جمهوری اسلامی "ظرف یک ماه تردد کشتی‌های تجاری از تنگه هرمز را به سطح پیش از جنگ بازمی‌گرداند و ایالات متحده نیز نیروهای نظامی خود را از اطراف ایران خارج و محاصره دریایی را لغو  می‌کند."
+
+صداوسیما افزود، این چارچوب، که کشتی‌های نظامی را در بر نمی‌گیرد و بر اساس آن، جمهوری اسلامی با همکاری عمان عبور و مرور کشتی‌ها در تنگه را مدیریت خواهد کرد، هنوز نهایی نشده است و تهران بدون "راستی‌آزمایی ملموس" هیچ اقدامی انجام نخواهد داد.
+
+در پی انتشار این خبر کاخ سفید طی بیانیه‌ای در شبکه ایکس اعلام کرد که این گزارش که رسانه‌های ایران آن را منتشر کرده‌اند "درست نیست و یادداشت تفاهمی که آن‌ها منتشر کرده‌اند کاملا ساختگی است."
+
+کاخ سفید افزود: «هیچ کس نباید مطالبی که رسانه‌های دولتی ایران منتشر می‌کنند را باور کند. واقعیت‌ها اهمیت دارند.»
+@dw_farsi
+</div>
+
+## IranianMinds — post 20878
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20878_1779900802.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل پس از دادن هشدارهای تخلیه، آغاز حملات به مواضع حزب‌الله در شهر صور در جنوب لبنان را آغاز کرد.
+
+@IranianMinds
+</div>
+
+## alonews — post 123106
+
+<div align="center">
+  <a href="telegram/content/alonews_123106_1779900804.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 وزیر جنگ ایالات متحده: ترامپ شرایطی را ایجاد کرد که مردم آمریکا و جهان را از تهدید دستیابی ایران به سلاح هسته‌ای محافظت کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123105
+
+<div align="center">
+  <a href="telegram/content/alonews_123105_1779900804.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : الان داریم به فواره مربوط به جنگ جهانی دوم نگاه می‌کنیم، چون اون هم واقعاً تو وضعیت خوبی نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123104
+
+<div align="center">
+  <a href="telegram/content/alonews_123104_1779900805.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 سی‌ان‌ان ایالات متحده و ایران در حال نزدیک شدن به یک توافق آتش‌بس هستند.
+
+
+🔴هر دو طرف در حال کار بر روی یک «حفظه تفاهم» هستند که نقشه راهی برای حل تمام مسائل باقی‌مانده تعیین می‌کند — روبیو آن را یک «کار در حال پیشرفت» نامید.
+
+
+🔴نقاط کلیدی اختلاف: بازگشایی تنگه هرمز، برنامه هسته‌ای ایران و ۲۴ میلیارد دلار دارایی‌های منجمد شده ایران — با اختلافات عمده بر سر زمان‌بندی تسکین تحریم‌ها.
+
+
+🔴ایالات متحده یک توقف ۲۰ ساله هسته‌ای را پیشنهاد داد؛ ایران با ۵ سال پاسخ داد — که واشنگتن آن را رد کرد. ایران همچنین در برابر درخواست‌های ایالات متحده برای ارسال اورانیوم غنی‌سازی شده خود به خارج مقاومت می‌کند.
+
+
+🔴پاکستان و قطر به عنوان میانجی‌گران کلیدی ظاهر شده‌اند و پیشنهادات و پیشنهادات متقابل را بین دو طرف منتقل می‌کنند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 20:12
 ---
 
