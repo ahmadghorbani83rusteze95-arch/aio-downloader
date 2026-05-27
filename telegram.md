@@ -7,6 +7,222 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 12:02
+---
+
+## VahidOOnLine — post 242392
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242392_1779870762.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️معاون سیاسی نیروی دریایی سپاه: احتمال جنگ دوباره با آمریکا پایین است اما برای پاسخ به هر حمله‌ای آماده‌ایم
+
+♦️محمد اکبرزاده، معاون سیاسی نیروی دریایی سپاه پاسداران روز چهارشنبه ششم خرداد اعلام کرد احتمال ازسرگیری جنگ با آمریکا پایین است، اما جمهوری اسلامی برای هرگونه حمله احتمالی آمادگی کامل دارد.
+
+او در گفتگو با خبرگزاری تسنیم افزود: «دشمن در موضع ضعف قرار دارد و نیروهای مسلح ایران با خشاب‌های پر آماده مقابله هستند».
+
+اکبرزاده همچنین اضافه کرد: «در صورت هرگونه حمله نظامی، مناطقی از چابهار تا ماهشهر به گورستان متجاوزان تبدیل خواهد شد.»
+
+این اظهارات در حالی مطرح می‌شود که تنش‌ها میان تهران و واشنگتن همچنان ادامه دارد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242391
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242391_1779870763.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدتقی وکیل‌پور، نماینده اعزامی رهبر جمهوری اسلامی به استان سیستان و بلوچستان، شامگاه سه‌شنبه در سخنانی در چابهار گفت مجتبی خامنه‌ای «اکنون با تمام توان در میدان ایستاده و مدیریت کلان کشور و صحنه جنگ را بر عهده دارند».
+
+او افزود: «شرایط امروز منطقه بسیار حساس است و دشمن با تمام توان عملیاتی خود به میدان آمده است.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12638
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12638_1779870764.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رکورد +۱۰۰کا ویو یک پست رو زدیم اونم در ۱۱ ساعت !!!
+@withyashar
+</div>
+
+## WithYashar — post 12637
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12637_1779870764.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید کاخ سفید، : مامویت سادست؛ صلح از طریق قدرت
+@withyashar
+</div>
+
+## mwarmonitor — post 9789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دولت‌های اتحادیه اروپا با تصویب قوانین لازم، راه را برای اجرای کاهش تعرفه‌های وارداتی بر کالاهای آمریکایی هموار کردند؛ اقدامی که بخش کلیدی توافق تجاری میان اتحادیه اروپا و ایالات متحده به شمار می‌رود — به گزارش Reuters.
+
+@mwarmonitor
+</div>
+
+## pm_afshaa — post 91613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا شب میخام براتون کانفینگ بزارم همه رو وصل کنین فقط کانال و بفرستین برا بقیه از اسپانسرمونم که کانفینگا رو در اختیارمون میزاره حمایت کنین🤍 @Glitch_Config
+</div>
+
+## pm_afshaa — post 91612
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://InternetAzadRobot@chatgpt.com:2087?encryption=none&security=tls&alpn=h2%2Chttp%2F1.1&fp=chrome&type=tcp&headerType=none#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نامحدود متصل رو همه سرورا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=5.ir.fulle7.info&port=8443&secret=EERighJJvXrFGRMCIMJdCQ
+
+پروکسی متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5013
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5013_1779870765.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 یک شهروند در ویدیویی می‌گوید: «اینجا جاده همدان قزوینه، سیلوی گندم که تا قبل از جنگ محل کار من و برادرم بود الان بسته شد، نه نون داریم نه کار، خسته شدیم از این حکومت، تو رو خدا به فکر مردم باشید.»
+
+#تورم #جنگ
+@DEJradio
+</div>
+
+## IranIntlTV — post 339205
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339205_1779870768.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻حزب ایران نوین با ارسال نامه‌ای رسمی به فیفا، به ممنوعیت ورود پرچم شیر و خورشید به ورزشگاه‌های جام جهانی ۲۰۲۶ اعتراض کرد. در این نامه تاکید شده است: «نشان شیر و خورشید نه یک نماد سیاسی، بلکه بخشی جدایی‌ناپذیر از تاریخ، فرهنگ و هویت ملی ایران است؛ نشانی که قرن‌ها پیش از حکومت کنونی وجود داشته و نماد وحدت و تمامیت ارضی ایران است.»
+
+🔹این حزب تصمیم فیفا را مغایر با اصول بی‌طرفی این نهاد دانست و افزود: «جام جهانی باید عرصه احترام به ملت‌ها باشد، نه بستری برای حذف نمادهای تاریخی.»
+
+🔹پیش‌تر، «موسسه صداهای آزادی» در آمریکا نیز با ارسال نامه‌ای به فیفا، برگزارکنندگان را به اقدام قضایی در دادگاه‌های فدرال و عالی کالیفرنیا تهدید کرده بود. مشاور حقوقی این نهاد اعلام کرد در صورت اصرار فیفا بر سیاسی دانستن این پرچم و ممنوعیت آن، به دلیل نقض آزادی بیان، روند رسمی دادرسی علیه فیفا را آغاز خواهند کرد.
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339204
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339204_1779870769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدتقی وکیل‌پور، نماینده اعزامی رهبر جمهوری اسلامی به استان سیستان و بلوچستان، شامگاه سه‌شنبه در سخنانی در چابهار گفت مجتبی خامنه‌ای «اکنون با تمام توان در میدان ایستاده و مدیریت کلان کشور و صحنه جنگ را بر عهده دارند».
+
+او افزود: «شرایط امروز منطقه بسیار حساس است و دشمن با تمام توان عملیاتی خود به میدان آمده است.»
+https://iranintl.com/202605270034
+</div>
+
+## DW_Farsi — post 125182
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125182_1779870770.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 عکس روز: پرواز بالن‌ها بر فراز "دره عشق"
+
+شهر کاپادوکیا در ترکیه از مناطق تاریخی این کشور به‌شمار می‌رود که هر سال گردشگران فراوانی را به خود جذب می‌کند.
+
+از جمله محبوب‌ترین مناطق آن "دره عشق" است که به گفته زمین‌شناسان، قدمت آن به میلیون‌ها سال می‌رسد. در این تصویر، پرواز بالن‌ها بر فراز "دره عشق" دیده می‌شوند؛ همزمان با طلوع آفتاب در آسمانی نیمه‌ابری.
+
+@dw_farsi
+</div>
+
+## alonews — post 122999
+
+<div align="center">
+  <a href="telegram/content/alonews_122999_1779870770.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کره جنوبی: اعتقاد بر این است که حمله به یک کشتی کره جنوبی در تنگه هرمز در این ماه با موشک ایرانی انجام شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122998
+
+<div align="center">
+  <a href="telegram/content/alonews_122998_1779870771.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈جاده چالوس بازم شلوغ شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122997
+
+<div align="center">
+  <a href="telegram/content/alonews_122997_1779870771.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ریانووستی به نقل از معاون دبیر شورای عالی امنیت ملی ایران نوشت: ایران و ایالات متحده هنوز در مورد رفع انسداد تنگه هرمز به توافق نرسیده‌اند.
+
+
+🔴ایران و عمان در حال مذاکره درباره رویه جدید عبور کشتی‌ها از تنگه هرمز هستند.
+
+
+🔴تماس‌های غیرمستقیم میان ایران و آمریکا ادامه دارد.
+
+
+🔴ذخایر اورانیوم غنی‌شده ایران در دستور کار مذاکرات نیست
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122996
+
+<div align="center">
+  <a href="telegram/content/alonews_122996_1779870771.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یزدی‌خواه، نایب رئیس کمیسیون مجلس:
+مسئولای بالا به این نتیجه رسیدن که فعلاً اینترنتو کامل باز نکنن بهتره؛
+
+مردمم خیلی با قطع اینترنت مشکل خاصی ندارن و فقط به یه سری قشرایی که لازم داشتن، اینترنت بین‌الملل دادن.
+الانم کشور تو وضعیت حساسیه، نه جنگه نه صلح؛ واسه همینم بخاطر مسائل امنیتی فعلاً قرار نیست اینترنت آزاد واسه همه وصل بشه.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 11:52
 ---
 
