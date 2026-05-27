@@ -7,6 +7,67 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 08:52
+---
+
+## VahidOOnLine — post 242380
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242380_1779859329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️کره شمالی روز چهارشنبه ششم خردادماه از شلیک موشک‌های کروز با سامانه هدایتگر مجهز به هوش مصنوعی در جریان یک رزمایش خبر داد.
+
+به گزارش رویترز به نقل از خبرگزاری دولتی کره شمالی در این رزمایش،  «ترکیبی از موشک‌های بالستیک تاکتیکی، راکت‌های توپخانه و موشک‌های کروز دقیق هدایت‌شونده با هوش مصنوعی، که برای جنگ‌های مدرن طراحی شده‌اند، تحت نظارت کیم جونگ اون، رهبر جمهوری دموکراتیک خلق کره، آزمایش شده‌اند.
+
+به گزارش خبرگزاری دولتی کره شمالی،‌ کیم جونگ اون به فرماندهان ارتش گفت: «این آزمایش‌ها به‌ویژه آمادگی رزمی موشک‌های کروز را که در واحدهای توپخانه‌ای نزدیک مرز با کره جنوبی مستقر خواهند شد، تایید کرد.»
+
+براساس همین گزارش، پیونگ یانگ می‌گوید «این موشک‌ها مجهز به ناوبری دقیق و کنترل هدایت‌شده با هوش مصنوعی هستند که می‌توانند به اهدافی در فاصله ۱۰۰ کیلومتری حمله کنند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## alonews — post 122962
+
+<div align="center">
+  <a href="telegram/content/alonews_122962_1779859330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فرودگاه بین‌المللی تبریز بازگشایی شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122961
+
+<div align="center">
+  <a href="telegram/content/alonews_122961_1779859330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فارس: بیش از ۲۰۰ فروند کشتی در یک هفته گذشته از تنگه هرمز عبور کرده‌اند
+
+
+🔴 اولویت عبور برای کشتی‌های فله‌بر و حامل کود است، اما برخی تردد‌های مجوزدار را به‌نوعی آزادسازی عبورو مرور از این آبراه تلقی می‌کنند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122960
+
+<div align="center">
+  <a href="telegram/content/alonews_122960_1779859330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈زنگنه، نماینده مجلس: آمریکا حق غنی‌سازی، حاکمیت ایران بر تنگه هرمز و رفع تحریم‌ها را پذیرفت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 08:42
 ---
 
