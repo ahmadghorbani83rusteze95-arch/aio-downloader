@@ -7,6 +7,146 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 13:02
+---
+
+## VahidOOnLine — post 242400
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242400_1779874359.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی باقری‌کنی، معاون دبیر شورای عالی امنیت ملی، با بیان اینکه «تماس‌های غیرمستقیم میان جمهوری اسلامی و آمریکا ادامه دارد» گفت: «موضوع ذخایر اورانیوم غنی‌شده در دستور کار مذاکرات نیست.»
+
+او افزود جمهوری اسلامی و عمان در حال مذاکره درباره رویه جدید عبور کشتی‌ها از تنگه هرمز هستند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت‌ژورنال: دولت ترامپ در حال کاهش نیروهاییه که در صورت بحران به اروپا اعزام میشن؛ اقدامی تازه در راستای کاهش حمایت نظامی آمریکا از متحدان ناتو.
+@withyashar
+</div>
+
+## pm_afshaa — post 91630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبر هایی داره توسط رسانه های آمریکایی پخش میشه که جی دی ونس اطلاعاتی که ترامپ فقط با اون در میون گذاشته بوده رو لو میداده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91629
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=172.65.38.26&port=9443&secret=ee09db815a6d82a31fda76f872230c69d7706b676275696c642e6f7267 پروکسی متصل 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=172.65.38.26&port=9443&secret=ee09db815a6d82a31fda76f872230c69d7706b676275696c642e6f7267
+
+پروکسی متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=49.13.35.164&port=8443&secret=dd104462821249bd7ac519130220c25d09
+
+پروکسی متصل خوراک دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91626
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=195.254.165.4&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+پروکسی متصل
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339214
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339214_1779874360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که برخی بازی‌های تدارکاتی پیش‌بینی‌شده تیم فوتبال ایران لغو شده‌اند، این تیم قرار است برابر گامبیا و مالی به میدان برود. همزمان، انتخاب تیخوانا در مکزیک به‌عنوان محل اقامت ایران در جام جهانی با انتقادهایی درباره موقعیت جغرافیایی و شرایط امنیتی این شهر همراه شده است.
+
+ارزیابی بیشتر با رها پوربخش، عضو تحریریه ورزشی ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339213
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339213_1779874362.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی باقری‌کنی، معاون دبیر شورای عالی امنیت ملی، با بیان اینکه «تماس‌های غیرمستقیم میان جمهوری اسلامی و آمریکا ادامه دارد» گفت: «موضوع ذخایر اورانیوم غنی‌شده در دستور کار مذاکرات نیست.»
+
+او افزود جمهوری اسلامی و عمان در حال مذاکره درباره رویه جدید عبور کشتی‌ها از تنگه هرمز هستند.
+https://iranintl.com/202605272209
+</div>
+
+## alonews — post 123014
+
+<div align="center">
+  <a href="telegram/content/alonews_123014_1779874362.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سالود کارباجال، نماینده کنگره با انتشار نظرسنجی مبنی بر اینکه ۷۷٪ آمریکایی‌ها معتقدند سیاست‌های ترامپ زندگی را گران‌تر کرده نوشت:
+
+
+🔴«مردم آمریکا به‌حق از این موضوع ناراضی‌اند که قیمت خواربار، بنزین و دیگر کالاهای ضروری به دلیل جنگ غیرقانونی ترامپ سر به فلک کشیده است. این دولت خانواده‌ها را زیر فشار گذاشته بدون اینکه پایانی برای آن در چشم باشد، و جمهوری‌خواهان هم دارند اجازه می‌دهند این اتفاق بیفتد.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123013
+
+<div align="center">
+  <a href="telegram/content/alonews_123013_1779874363.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون وزیر امور خارجه روسیه: ما آمادگی خود را برای انتقال اورانیوم غنی‌شده از ایران به واشنگتن اطلاع داده‌ایم و این پیشنهاد همچنان روی میز است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 12:52
 ---
 
