@@ -7,6 +7,95 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 00:23
+---
+
+## WithYashar — post 12741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا فیروزجا با پرچم فرانسه نفر اول شطرنج جهانو شکست داد
+@withyashar
+</div>
+
+## WithYashar — post 12740
+
+
+
+
+## pm_afshaa — post 91679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علیرضا فیروزجا با پرچم فرانسه نفر اول شطرنج جهانو شکست داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91678
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://762ca06a-daba-4510-8533-7ba0667fb1f1@188.137.230.245:8880?path=%2F&security=none&encryption=none&type=ws#pmtv%E2%8F%B3 نامحدود سرعت بالا برا تمام اوپراتورها 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://762ca06a-daba-4510-8533-7ba0667fb1f1@188.137.230.245:8880?path=%2F&security=none&encryption=none&type=ws#pmtv%E2%8F%B3
+
+نامحدود سرعت بالا برا تمام اوپراتورها
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranianMinds — post 20902
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20902_1779915191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی روز جمعه ۱ خرداد (۲۲ مه)، در نشستی آنلاین با شماری از فعالان و چهره‌های رسانه‌ای و هنری گفتگو کردند. ایشان ضمن شنیدن دیدگاه‌ها و نظرات حاضران، به برخی پرسش‌ها نیز پاسخ دادند. بخش‌های بیشتری از این گفتگو در روزهای آینده منتشر خواهد شد.
+
+@OfficialRezaPahlavi
+</div>
+
+## IranianMinds — post 20901
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20901_1779915192.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا فیروزجا (ایرانی)
+با پرچم فرانسه
+نفر اول شطرنج جهانو شکست داد
+
+اینم از نابغه هامون...
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لطفا هرچی زودتر اینترنت رو قطع کنید تا بتونیم راحت تر وصل شیم
+
+
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 00:13
 ---
 
