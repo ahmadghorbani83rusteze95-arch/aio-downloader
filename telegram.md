@@ -7,6 +7,28 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 03:32
+---
+
+## FarsiVOA — post 218759
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218759_1779840146.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️هشدار روسیه درباره گسترش «داعش خراسان» و تهدیدهای امنیتی در منطقه
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش رسانه‌های بریتانیایی به بازگشایی محدود اینترنت در ایران
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 03:22
 ---
 
