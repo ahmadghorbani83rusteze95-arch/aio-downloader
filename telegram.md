@@ -7,6 +7,299 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 19:52
+---
+
+## VahidOOnLine — post 242451
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242451_1779898977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از منابع آگاه نوشت دونالد ترامپ، رییس‌جمهوری آمریکا، ممکن است در ساعات آینده به‌صورت یک‌طرفه اعلام کند که توافق جمهوری اسلامی و آمریکا نهایی شده است.
+
+فارس نوشت این اقدام احتمالی از سوی ترامپ با هدف اعمال فشار و القای توافق به افکار عمومی، پیش از رفع کامل اختلافات، ارزیابی می‌شود.
+
+با این حال، یک عضو تیم مذاکره‌کننده جمهوری اسلامی در گفت‌وگو با فارس تاکید کرد هنوز برخی موارد حل‌نشده باقی مانده و تا زمانی که همه موضوعات مدنظر جمهوری اسلامی حل نشود، «هیچ توافقی در کار نخواهد بود».
+
+به گفته این منبع، جمهوری اسلامی در صورت رفع کامل این موارد، رسما نتیجه را اعلام خواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242450
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242450_1779898978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️خبرگزاری فارس به نقل از «منابع آگاه» گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا، ممکن است در ساعات آینده به‌صورت یک‌طرفه اعلام کند که توافق میان ایران و آمریکا نهایی شده است؛ اقدامی که به گفته این منابع می‌تواند با هدف اعمال فشار سیاسی و اثرگذاری بر افکار عمومی انجام شود، پیش از آنکه اختلافات باقی‌مانده به‌طور کامل برطرف شود.
+بر اساس این گزارش، این سناریو در حالی مطرح شده که هنوز برخی موضوعات میان دو طرف حل‌نشده باقی مانده و روند مذاکرات به مرحله نهایی نرسیده است.
+در همین زمینه، یک عضو تیم مذاکره‌کننده ایرانی در گفتگو با فارس تاکید کرده است که تا زمانی که همه موارد مورد نظر ایران حل و فصل نشود، هیچ توافقی قابل اعلام نخواهد بود.
+به گفته این منبع، جمهوری اسلامی ایران تنها در صورتی که اختلافات به‌طور کامل برطرف شود، نتیجه مذاکرات را به‌صورت رسمی اعلام خواهد کرد و هیچ توافقی پیش از رسیدن به جمع‌بندی نهایی، مورد تایید تهران نخواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12700
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12700_1779898979.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران :
+ایران خیلی دنبال توافقه. هنوز به نتیجه نرسیدیم و راضی نیستیم، ولی یا توافق میشه یا مجبور میشیم کار رو تموم کنیم.
+اونا دارن از روی استیصال مذاکره می‌کنن.
+اونا دیگه نیروی دریایی و هوایی ندارن و رهبرانشونم هم رفتن.
+ایران فکر می‌کرد میتونه صبر کنه تا منو خسته کنه
+به انتخابات میان دوره اهمیتی نمیدهم اونا گزینه دیگه ایی جز توافق ندارن
+@withyashar
+</div>
+
+## WithYashar — post 12699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنشنال باز خل شده ؟ چرا ترامپ رو انقدر میکوبه ؟!
+</div>
+
+## WithYashar — post 12698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایرانی‌ها فکر می‌کنند من به‌خاطر انتخابات میان‌دوره‌ای جنگ را تمام می‌کنم اما من اهمیتی نمی‌دهم @withyashar
+</div>
+
+## FoxNewsTwitter — post 342309
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342309_1779898981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump comments on the sweeping success of Republican candidates with his endorsement in elections yesterday:
+
+"Last night was incredible. Not only Texas, but so many other places, and the numbers were fantastic." https://twitter.com/FoxNews/status/2059604700979228857#m
+</div>
+
+## FoxNewsTwitter — post 342308
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342308_1779898982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST NOW: President Trump touts his administration's economic success during today's Cabinet meeting:
+
+"This year, the typical family got tax refunds of nearly, almost close to $5,000."
+
+"The stock market has set 68 all-time record highs since the election. So 68 days we hit all-time highs."
+
+"The average 401K is up almost $30,000 since I took office."
+
+"The Americans are benefiting."
+</div>
+
+## FoxNewsTwitter — post 342307
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342307_1779898983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NOW: President Trump welcomes the press to the 12th Cabinet meeting of his second term, highlighting the administration's transparency:
+
+"We're always letting the press join us because we're very open and transparent. You like the word transparent, but we're more transparent than any any administration in history. To the best of my knowledge, press has never been invited ever to a cabinet meeting for any reason at all... It's an honor to have you."
+</div>
+
+## pm_afshaa — post 91665
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://76bc8e3d-0e6b-4a35-b1a7-7f5158042666@45.76.83.35:54985?encryption=none&security=none&type=tcp&headerType=none#PMTV%20NEWS%20%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+نپسترنت نا محدود سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :قرار نیست تحریم های ایران برداشته بشه. حتی اگه اورانیوم غنی شدش رو هم تحویل بده هیچ تحریمی کاهش پیدا نمیکنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس به نقل از «منابع آگاه» گزارش داد که دونالد ترامپ، رئیس‌جمهوری آمریکا، ممکن است در ساعات آینده به‌صورت یک‌طرفه اعلام کند که توافق میان ایران و آمریکا نهایی شده است؛ اقدامی که به گفته این منابع می‌تواند با هدف اعمال فشار سیاسی و اثرگذاری بر افکار عمومی انجام شود، پیش از آنکه اختلافات باقی‌مانده به‌طور کامل برطرف شود.
+
+بر اساس این گزارش، این سناریو در حالی مطرح شده که هنوز برخی موضوعات میان دو طرف حل‌نشده باقی مانده و روند مذاکرات به مرحله نهایی نرسیده است.
+در همین زمینه، یک عضو تیم مذاکره‌کننده ایرانی در گفتگو با فارس تاکید کرده است که تا زمانی که همه موارد مورد نظر ایران حل و فصل نشود، هیچ توافقی قابل اعلام نخواهد بود.
+به گفته این منبع، جمهوری اسلامی ایران تنها در صورتی که اختلافات به‌طور کامل برطرف شود، نتیجه مذاکرات را به‌صورت رسمی اعلام خواهد کرد و هیچ توافقی پیش از رسیدن به جمع‌بندی نهایی، مورد تایید تهران نخواهد بود.
+@VahidOOnLine
+دونالد ترامپ در گفت‌وگو با پی‌بی‌اس‌نیوز اعلام کرد که تهران در ازای واگذاری و تحویل اورانیوم با غنای بالا، هیچ امتیاز یا کاهش تحریمی دریافت نخواهد کرد و چنین توافقی شامل لغو تحریم‌ها نمی‌شود.
+@VahidOOnLine
+
+📡 @VahidOnline
+</div>
+
+## VahidOnline — post 75749
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75749_1779898985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#آتش‌سوزی در یکی از برج‌های مجتمع مسکونی پامچال در چیتگر #تهران
+تصاویر دریافتی + منتشرشده، چهارشنبه ۶ خرداد
+Vahid
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339267
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339267_1779898985.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از منابع آگاه نوشت دونالد ترامپ، رییس‌جمهوری آمریکا، ممکن است در ساعات آینده به‌صورت یک‌طرفه اعلام کند که توافق جمهوری اسلامی و آمریکا نهایی شده است.
+
+فارس نوشت این اقدام احتمالی از سوی ترامپ با هدف اعمال فشار و القای توافق به افکار عمومی، پیش از رفع کامل اختلافات، ارزیابی می‌شود.
+
+با این حال، یک عضو تیم مذاکره‌کننده جمهوری اسلامی در گفت‌وگو با فارس تاکید کرد هنوز برخی موارد حل‌نشده باقی مانده و تا زمانی که همه موضوعات مدنظر جمهوری اسلامی حل نشود، «هیچ توافقی در کار نخواهد بود».
+
+به گفته این منبع، جمهوری اسلامی در صورت رفع کامل این موارد، رسما نتیجه را اعلام خواهد کرد.
+https://iranintl.com/202605279960
+</div>
+
+## DW_Farsi — post 125207
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125207_1779898986.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 کره جنوبی سفیر ایران را در اعتراض به حمله به کشتی خود احضار کرد
+
+کره جنوبی روز چهارشنبه ۲۷ مه (ششم خرداد) اعلام کرد که سفیر ایران را احضار خواهد کرد تا در پی پایان تحقیقات درباره حمله به کشتی خود در تنگه هرمز مراتب اعتراضش را اعلام کند.
+
+این کشور می‌گوید، بر اساس نتایج این تحقیقات، "به احتمال بسیار زیاد" این حمله با یک موشک ساخت ایران انجام شده است.
+
+این کشتی باری کره جنوبی روز ۴ مه در تنگه هرمز ، آبراهی راهبردی که از زمان آغاز جنگ آمریکا و اسرائیل علیه جمهوری اسلامی در ۲۸ فوریه عملا بسته شده، هدف حمله قرار گرفت.
+
+دونالد ترامپ، رئیس جمهور آمریکا، مدعی شده که جمهوری اسلامی به این کشتی با پرچم پاناما "شلیک‌هایی" کرده، اما تهران مسئولیت این حمله را رد کرده است.
+
+پس از تحقیقاتی که چند هفته به طول انجامید، دولت کره جنوبی اعلام کرد، بررسی‌های فنی نشان می‌دهد که پرتابه ناشناسی که به این کشتی اصابت کرده، "به احتمال بسیار زیاد" گونه‌ای دیگر از "سری نور، ساخته‌شده در ایران" بوده است.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15138
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15138_1779898986.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تکذیب شکایت اعضای شورای عالی فضای مجازی برای جلوگیری از وصل‌شدن اینترنت
+
+«رضا تقی‌پور» عضو شورای عالی فضای مجازی: شکایت بابت تاسیس نهاد موازی فراقانونی انجام شد. هرگز موافق قطع اینترنت نبوده و نیستم.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20876
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20876_1779898987.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : الان داریم با رویکرد «اول آمریکا» جلو می‌ریم درباره ایران. یا باید با شرایط من کنار بیان، یا کار رو تموم می‌کنیم.
+
+می‌گن «صبر می‌کنیم تا انتخابات میان‌دوره‌ای». دیشب دیدید چی شد؟ اون فقط شروع ماجرا بود برای انتخابات!
+
+هر کسی گفته من دارم کوتاه میام، اشتباه کرده
+
+الان به نظر میاد خودشون دنبال توافقن. فکر نمی‌کنم حق انتخاب زیادی داشته باشن
+
+اینترنتشون تازه دوباره وصل شده، اقتصادشون هم داغونه، تورم هم خیلی بالاست!
+شاید مجبور بشیم برگردیم و کار رو یک‌سره کنیم!
+
+@IranianMinds
+</div>
+
+## alonews — post 123098
+
+<div align="center">
+  <a href="telegram/content/alonews_123098_1779898989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : وزیر جنگ، پیت هگست، انگار از دل فیلم‌ها دراومده! عاشق جنگه! ولی آدم خوبیه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123097
+
+<div align="center">
+  <a href="telegram/content/alonews_123097_1779898990.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : با وجود درگیری با ونزوئلا، کشوری که دیگه نیروی دریایی نداره 
+🔴 نیروی هوایی نداره، و خیلی از آدم‌هایی که کشور رو به جاهای بد کشونده بودن کنار رفتن و دیگه خبری از رهبری قبلی نیست... 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123096
+
+<div align="center">
+  <a href="telegram/content/alonews_123096_1779898990.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : سومالیایی‌ها، همه‌شون کلاهبردارن، خیلی هم خرابن، ماگرفتیمشون و داریم روشون فشار می‌ذاریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123095
+
+<div align="center">
+  <a href="telegram/content/alonews_123095_1779898991.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 ترامپ: ما هنوز در مورد ایران به توافق نرسیده‌ایم و از این موضوع راضی نیستیم.
+
+
+🔴ایران فکر می‌کرد می‌تواند صبر کند تا من را خسته کند
+
+
+🔴 به انتخابات میان دوره اهمیتی نمیدهم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 19:42
 ---
 
