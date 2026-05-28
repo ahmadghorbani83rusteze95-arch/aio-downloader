@@ -7,6 +7,139 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 16:13
+---
+
+## VahidOOnLine — post 242587
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242587_1779972233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه روسیه تاکید کرد که این کشور آماده است در خروج اورانیوم غنی‌شده از ایران کمک کند، اما آمریکا پیشنهادی که ماه‌ها روی میز بوده را نپذیرفته است.
+
+روز چهارشنبه دونالد ترامپ در نشست کابینه در کاح سفید، درباره اورانیوم غنی‌شده ایران گفت که با انتقال آنها به روسیه یا چین موافق نیست.
+
+سخنگوی وزارت خارجه روسیه گفت که این کشور از آمریکا و جمهوری اسلامی درخواست می‌کند به درگیری مسلحانه بازنگردند و به گفت‌وگوها ادامه دهند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242586
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242586_1779972234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز گزارش داد محمد اسحاق دار، وزیر خارجه پاکستان، جمعه به واشینگتن سفر می‌کند و با مارکو روبیو، وزیر خارجه آمریکا، دیدار خواهد کرد.
+
+این سفر در حالی انجام می‌شود که اسلام‌آباد در تلاش است درباره توافقی برای پایان دائمی جنگ آمریکا و اسرائیل با جمهوری اسلامی مذاکره کند.
+
+وزارت خارجه پاکستان اعلام کرد وزیر خارجه پاکستان و روبیو در این دیدار روابط دوجانبه را بررسی خواهند کرد و درباره تحولات منطقه‌ای و جهانی مورد علاقه دو طرف تبادل نظر می‌کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342337
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342337_1779972235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: DHS Secretary Markwayne Mullin warns sanctuary cities could start seeing major disruptions to international flights as federal agents are redirected to deal with violent protests that have been targeting law enforcement and ICE facilities:
+
+"When we have situations, what's happening in new Jersey right now, when we have to prioritize where we put federal employees because local law enforcement won't help protect their streets.”
+
+“We're not going to halt the flights, what we're saying is we just won't be able to process them because we don't have officers there. We're going to pull out our Customs and Border Patrol officers that process these flights and put them in these facilities to help protect our employees coming out of work.”
+</div>
+
+## pm_afshaa — post 91737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/pm_afshaa
+</div>
+
+## pm_afshaa — post 91736
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/boost/pm_afshaa
+</div>
+
+## IranIntlTV — post 339405
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339405_1779972238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه روسیه تاکید کرد که این کشور آماده است در خروج اورانیوم غنی‌شده از ایران کمک کند، اما آمریکا پیشنهادی که ماه‌ها روی میز بوده را نپذیرفته است.
+
+روز چهارشنبه دونالد ترامپ در نشست کابینه در کاح سفید، درباره اورانیوم غنی‌شده ایران گفت که با انتقال آنها به روسیه یا چین موافق نیست.
+
+سخنگوی وزارت خارجه روسیه گفت که این کشور از آمریکا و جمهوری اسلامی درخواست می‌کند به درگیری مسلحانه بازنگردند و به گفت‌وگوها ادامه دهند.
+https://iranintl.com/202605284382
+</div>
+
+## FarsiVOA — post 218885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سه زخمی در حمله با سلاح سرد در سوئیس
+
+◾️پلیس محلی سوئیس روز پنجشنبه ۷ خرداد اعلام کرد که مردی سه نفر را در حمله با چاقو در یک ایستگاه قطار در شهر وینترتور سوئیس در نزدیکی زوریخ زخمی کرده بود، دستگیر شد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/switzerland-attack-injury-allaho-akbar/8154821.html
+</div>
+
+## BBCPersian — post 282267
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ارتش اسرائیل از حملات هوایی به بیروت خبر داد
+
+ارتش اسرائیل از انجام حملات هوایی به بیروت، پایتخت لبنان خبر داده است. این اقدام پس از آن صورت گرفت که حملات پیشین به جنوب لبنان دست‌کم ۱۲ کشته بر جای گذاشته بود.
+
+ارتش اسرائیل در بیانیه‌ای گفت: «اندکی پیش، نیروهای اسرائیل به اهدافی در بیروت حمله کردند. جزئیات به زودی اعلام خواهد شد.»
+
+یک منبع امنیتی لبنانی گفت که این حمله در نزدیکی حومه جنوبی بیروت انجام شده است، اما هنوز مشخص نیست که هدف حمله چه بوده است. تصاویر منتشرشده از منطقه، دود غلیظی را نشان می‌دهد که در میان ساختمان‌ها به هوا برخاسته است.
+
+قرار بود آتش‌بس میان اسرائیل و گروه حزب‌الله، که مورد حمایت ایران است، از ۱۷ آوریل (۲۸ فروردین) اجرایی شود، اما این آتش‌بس تاکنون رعایت نشده است.
+
+@BBCPersian
+</div>
+
+## alonews — post 123299
+
+<div align="center">
+  <a href="telegram/content/alonews_123299_1779972239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خوش چشم، کارشناس ارشد صدا و سیما: ایندفعه دیگه جنگی نمیشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123298
+
+<div align="center">
+  <a href="telegram/content/alonews_123298_1779972239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هواشناسی: تا چند روز آینده خیلی گرم میشه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 16:04
 ---
 
