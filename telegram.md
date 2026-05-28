@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 01:12
+---
+
+## VahidOOnLine — post 242662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد فرماندهی مرکزی آمریکا، سنتکام، پنجشنبه هفتم خرداد با انتشار تصاویری اعلام کرد که ناو هواپیمابر «یواس‌اس آبراهام لینکلن» در حین عبور از دریای عرب، عملیات پروازی انجام داده است. سنتکام پیش‌تر اعلام کرده بود این ناو و نیروهای همراه آن در چارچوب عملیات‌های آمریکا در منطقه و پشتیبانی از محاصره دریایی اعمال‌شده بر بنادر ایران فعالیت می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342366
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342366_1780004538.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A graduating Air Force cadet went in for a chest bump with Vice President JD Vance... and Vance delivered.
+
+The quick exchange happened right during the commencement ceremony, with the crowd cheering and laughing at the unexpected moment between the VP and the newly commissioned officer.
+</div>
+
+## FarsiVOA — post 218931
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218931_1780004540.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️کاربران ایرانی از «وقتی شما نبودید» می‌گویند؛ بازگشت قطره‌چکانی اینترنت
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218930
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218930_1780004540.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش عفو بین الملل در مورد افزایش سرکوب‌ها در ایران؛ گفت‌وگو با اسفندیار ابان
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20974
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20974_1780004541.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست عجیب کاخ سفید
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20973
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20973_1780004541.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ درباره ایران:
+
+آنها مذاکره‌کنندگان بسیار خوبی هستند آنها زیرک‌اند
+اما ما همه کارت‌ها را در دست داریم
+چون آنها را از نظر نظامی شکست داده‌ایم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20972
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز شب شدو تو جنوب کشور جنگ شد
+
+طبق معمول هیچکدومش هم نقض آتش بس نیست
+
+
+
+@IranianMinds
+</div>
+
+## alonews — post 123406
+
+<div align="center">
+  <a href="telegram/content/alonews_123406_1780004543.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پست عجیب کاخ سفید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123405
+
+<div align="center">
+  <a href="telegram/content/alonews_123405_1780004543.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصویری که الجزیره از شدت خسارت حملات آمریکا به تاسیسات فولاد اصفهان منتشر کرده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 01:02
 ---
 
