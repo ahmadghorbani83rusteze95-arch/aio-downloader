@@ -7,6 +7,141 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 23:13
+---
+
+## WithYashar — post 12817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود بر یاشار جان از جم پیام میدم
+حوالی ساعت 22:41 بود که فک کنم صدای فرستادن موشک یا رد شدن جت و این داستانا یهو اومد
+صدای مهیب و خوبی بود
+@withyashar
+</div>
+
+## WithYashar — post 12816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : هرمزگان و بوشهر هم صدای انفجار میاد
+@withyashar
+</div>
+
+## WithYashar — post 12815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : انفجار تو علامردشت هرمزگان بوده
+@withyashar
+</div>
+
+## WithYashar — post 12814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با شما : یاشار مثل اینکه مرز بین استان فارس و بندر عباس و بوشهر رو زدن
+@withyashar
+</div>
+
+## WithYashar — post 12813
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترور مامور فراجا در ایرانشهر
+
+ساعتی قبل افرادی مسلح به سمت مامور انتظامی شهرستان ایرانشهر که در حال عزیمت به محل کار بود با سلاح گرم تیراندازی کردند که استوار دوم «عیسی عباسی» کشته شد.
+@withyashar
+</div>
+
+## pm_afshaa — post 91769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میثم ویسی و مجتبی ویسی، دو برادر که پس از انقلاب ملی ایرانیان در دی 404 مخفیانه زندگی می‌کردند، ساعت 4 بامداد پنج‌شنبه 7 خرداد 405 در روستای «قلعه کهوش» شهرستان دالاهو با شلیک مستقیم نیروهای سپاه پاسداران کشته شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با توجه به درخواست خیلیاتون کانفیگ اختصاصی برای فروش موجود کردیم
+💙
+
+اگر قصد تهیه دارید به آیدی پایین پیام بدید
+👇
+
+
+🔤 @Gliitch_Admin
+
+🔤 @Gliitch_Admin
+</div>
+
+## pm_afshaa — post 91767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.210&port=4455&secret=ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+
+پروکسی سرعت بالا مخصوص دانلود
+
+https://t.me/proxy?server=tg.capycore.ru&port=443&secret=27ebe852539fb8ec5f327c73262bb721
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Persian_Trend_Official — post 15206
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/JrqroHI5pq8?feature=share
+</div>
+
+## BBCPersian — post 282282
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282282_1779997431.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌
+آخرین خبرهای مهم پنجشنبه ۷ خرداد ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## alonews — post 123380
+
+<div align="center">
+  <a href="telegram/content/alonews_123380_1779997432.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 تصویری از اسکناس ۲۵۰ دلاری با تصویر دونالد ترامپ که در صورت تصویب کنگره چاپ خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123379
+
+<div align="center">
+  <a href="telegram/content/alonews_123379_1779997432.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / هرمزگان و بوشهر صدای چند انفجار
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 23:04
 ---
 
