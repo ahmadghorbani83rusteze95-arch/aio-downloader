@@ -7,6 +7,159 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 18:33
+---
+
+## VahidOOnLine — post 242616
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242616_1779980605.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا، در شبکه ایکس نوشت عمان باید بداند دولت آمریکا به‌صورت تهاجمی هر طرفی را که در تسهیل دریافت عوارض در تنگه هرمز نقش داشته باشد، هدف قرار خواهد داد.
+
+او افزود هر شریک یا طرفی که در اجرای نظام اخذ عوارض در تنگه هرمز مشارکت کند، با مجازات روبه‌رو خواهد شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع اسرائیلی: رهبر ایران، مجتبی خامنه‌ای، این توافق را تأیید نکرده است، و بنابراین ترامپ نیز آن را تأیید نکرده است. قالیباف، رئیس مجلس و عراقچی، وزیر امور خارجه، حتی اگر چارچوب را پذیرفته باشند، مجاز نیستند؛ تصمیم توسط رهبر گرفته می‌شود. ما نمی‌دانیم که آیا هیچ یک از طرفین این توافق را تأیید کرده‌اند یا خیر. اختلافات هنوز هم وجود دارد، حداقل طبق آخرین به‌روزرسانی که اسرائیل دریافت کرده است.
+@withyashar
+</div>
+
+## pm_afshaa — post 91740
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91740_1779980605.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از نهاوند دوباره موشک بلند شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 5074
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5074_1779980606.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🛩️
+🔥 جنگ ۴۰ روزه؛ تخریب تیپ ۳۲۸ ارتش در حملات هوایی روز سه‌شنبه ۱۲ اسفند ۱۴۰۴ در مریوان
+بر اساس گزارش‌های دریافتی، تقریبا تمام تاسیسات ستادی و رزمی پادگان از بین رفت.
+
+#مریوان #جنگ۴۰روزه
+@DEJradio
+</div>
+
+## IranIntlTV — post 339427
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339427_1779980607.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا، در شبکه ایکس نوشت عمان باید بداند دولت آمریکا به‌صورت تهاجمی هر طرفی را که در تسهیل دریافت عوارض در تنگه هرمز نقش داشته باشد، هدف قرار خواهد داد.
+
+او افزود هر شریک یا طرفی که در اجرای نظام اخذ عوارض در تنگه هرمز مشارکت کند، با مجازات روبه‌رو خواهد شد.
+https://iranintl.com/202605280146
+</div>
+
+## DW_Farsi — post 125246
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125246_1779980608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 کایا کالاس: ادامه جنگ در خلیج فارس به سود هیچ‌کس نیست
+
+کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا، نسبت به وضعیت "بسیار خطرناک" میان جنگ و صلح در منطقه خلیج فارس هشدار داد.
+
+او روز پنجشنبه ۲۸ مه (هفتم خرداد) پیش از نشست وزیران خارجه اتحادیه اروپا در شهر لیماسول قبرس گفت: «به سود هیچ‌کس نیست که این جنگ ادامه پیدا کند.»
+
+کالاس همچنین بر اهمیت حفظ آزادی کشتیرانی در تنگه هرمز تاکید کرد و گفت: «واقعا به نفع همه است که آزادی کشتیرانی در تنگه هرمز محترم شمرده شود وگرنه همه بهای بسیار سنگینی می‌پردازند.»
+
+مسئول سیاست خارجی اتحادیه اروپا افزود در صورت دستیابی به توافق، مسئله برنامه هسته‌ای ایران باید در مرحله بعدی مورد مذاکره قرار گیرد.
+
+او گفت اروپا می‌تواند با استفاده از متخصصان خود در این زمینه نقش‌آفرینی کند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 15189
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15189_1779980608.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خزانه‌ داری امریکا در حساب توییتری خود نوشت: دولت ایالات متحده هیچ تلاشی برای اعمال سیستم اخذ عوارض در تنگه هرمز را تحمل نخواهد کرد.
+
+به ویژه عمان باید بداند که وزارت خزانه‌داری ایالات متحده به شدت هر بازیگری را که مستقیم یا غیرمستقیم در تسهیل عوارض عبور از تنگه هرمز دخیل باشد، هدف قرار خواهد داد و هر شریکی را مجازات خواهد شد.
+
+همه کشورها باید هرگونه تلاش ایران برای ایجاد اختلال در جریان آزاد تجارت را قاطعانه رد کنند. روزهای ارعاب تهران در منطقه و جهان به پایان رسیده است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 390400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس لطفا برگرد به همون عن‌آبادی که بودی.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390399
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعریف کردن اینکه چی اذیتت کرده جلوی یک آدم، واقعا شبیه خونریزی کردن جلوی کوسه‌ست.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123316
+
+<div align="center">
+  <a href="telegram/content/alonews_123316_1779980609.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈الجزیره به نقل ازیک مقام آمریکایی : حوادث اخیر هرمز تهدیدی برای مذاکرات نیست
+
+
+🔴 حوادث اخیر در تنگه هرمز، مذاکرات با ایران را تهدید نمی‌کند و این گفتگوها با هدف دستیابی به توافق، همچنان ادامه دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123315
+
+<div align="center">
+  <a href="telegram/content/alonews_123315_1779980609.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر خزانه‌داری آمریکا: محدودیت‌های شدیدی علیه خطوط هوایی ایران از جمله محرومیت از حق نشست و برخاست، خدمات سوخت‌رسانی و سیستم‌های فروش بلیت وضع می‌کنیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 18:23
 ---
 
