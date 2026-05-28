@@ -7,6 +7,270 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 14:43
+---
+
+## VahidOOnLine — post 242570
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242570_1779966806.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ارتش اسرائیل روز پنجشنبه هفتم خرداد اعلام کرد در جریان حملات روز سه‌شنبه به اهدافی در غزه، ایهاب خریزم، مسئول یک شبکه انتقال پول و محمد حبش، یکی از فرماندهان واحد تولید تسلیحات حماس را به قتل رسانده است.
+
+ارتش اسرائیل می‌گوید «پیش از اجرای حمله، اقداماتی برای کاهش آسیب به غیرنظامیان، از جمله استفاده از مهمات دقیق و عملیات شناسایی هوایی انجام شده بود.»
+
+اسرائیل در دو هفته گذشته فرمانده شاخه نظامی حماس و جانشین او را در عملیات مشابه به قتل رساند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مهدی تاج، رییس فدراسیون فوتبال، شامگاه چهارشنبه ششم خرداد ماه در گفتگو با خبرنگاران اعلام کرد آمریکا باید برای رفت و آمد کاروان تیم ملی به آمریکا، ویزای «مولتی» (ویزای مناسب ورود چندباره) صادر کند.
+تاج گفت: «ما به مکزیک می‌رویم و قرار است این موضوع از سوی ایران، فیفا، مکزیک و آمریکا به صورت همزمان اعلام شود و مسئله‌ای برای نگرانی وجود ندارد. در حال حاضر هم در مکزیک مشکلی نیست.»
+
+رئیس فدراسیون فوتبال افزود: «مسئله اصلی درباره تیم ملی و ویزاهاست. باید برای ویزاها راه‌حلی در نظر گرفته شود تا این افراد بتوانند رفت‌وآمد کنند و آمریکا باید ویزای مولتی بدهد تا بازیکنان به راحتی بروند و بیایند.»
+
+این اظهارات در حالی مطرح می‌شود که در کمتر از ۱۴ روز باقیمانده به آغاز جام‌جهانی، هنوز صدور ویزا و شرایط اردوی تیم ملی در کشورهای مکزیک و آمریکا در ابهام است.
+
+رئیس جمهوری مکزیک پیشتر، از آمادگی اسکان کاروان تیم ملی در شهر مرزی تیخوانا مکزیک خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی ارتش اسرائیل: چند لحظه پیش یک حمله هدفمند در بیروت انجام دادیم. @mwarmonitor
+</div>
+
+## mwarmonitor — post 9857
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9857_1779966809.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی ارتش اسرائیل: چند لحظه پیش یک حمله هدفمند در بیروت انجام دادیم.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت امور خارجه عراق: ما حملات جنایتکارانه ایران را که خاک کشور کویت را هدف قرار داده‌اند، به شدت محکوم می‌کنیم.
+
+@mwarmonitor
+</div>
+
+## DEJradio — post 5072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وال‌استریت ژورنال: رژیم با سنجش توان تاب‌آوری اقتصادی خود، میزان امتیازدهی به آمریکا را تنظیم می‌کند
+
+به گزارش وال‌استریت ژورنال، تهران می‌خواهد با توجه به میزان تاب آوری در برابر فشارهای اقتصادی، دادن و گرفتن امتیازها را در جریان مذاکرات تنظیم کند.
+این روزنامۀ آمریکایی گزارش داد جمهوری اسلامی پس از جنگ و محاصرۀ دریایی آمریکا در اقتصاد با بحرانی عمیق‌تر از پیش روبه‌رو شده است.
+وال‌استریت ژورنال نوشت کاهش درآمدهای نفتی و محدودیت ذخیره‌سازی نفت خام، خطر تعطیلی برخی چاه‌های نفت را افزایش می‌دهد.
+بنا بر این گزارش، افزایش قیمت کالاهای اساسی، رشد بیکاری و سقوط ارزش ریال، نگرانی مقام‌های جمهوری اسلامی از ناآرامی‌های تازه را بیشتر کرده است.
+وال‌استریت ژورنال همچنین گزارش داد بیش از یک میلیون نفر در جریان جنگ و پیامدهای اقتصادی آن بیکار شدند.
+این روزنامه نوشت جمهوری اسلامی با وجود فشارهای داخلی، همچنان تلاش می‌کند بدون دادن امتیازهای گسترده، مذاکره با آمریکا را پیش ببرد.
+
+#خبر #دژ
+@DEJradio
+</div>
+
+## DEJradio — post 5071
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ جمعیت زیر خط فقر در ایران از ۴۰ میلیون نفر عبور می‌کند
+
+شماری از کارشناسان اقتصاد و استاد دانشگاه در ایران هشدار دادند که در سال جاری شمار افراد زیر خط فقر از چهل میلیون تن عبور می‌کند.
+حجت میرزایی، عضو هیئت علمی دانشگاه علامه طباطبایی، گفت با کاهش شدید صادرات نفت و ادامۀ محاصرۀ دریایی، رشد اقتصادی ایران بین منفی ۸.۸ تا منفی ۱۰ درصد برآورد می‌شود.
+او افزود پیش‌بینی‌ها نشان می‌دهد بین ۳.۵ تا ۴.۵ میلیون نفر دیگر به جمعیت فقیر کشور اضافه می‌شود.
+اقتصاددانان همچنین از افزایش بیکاری، رشد پدیدۀ «شاغلان فقیر» و بلندتر شدن دوره‌های بیکاری در ایران خبر دادند.
+
+#خبر #دژ #فقر
+@DEJradio
+</div>
+
+## DEJradio — post 5070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️تهران پس از تهدید ترامپ علیه عمان با این کشور اعلام همبستگی کرد
+
+اسماعیل بقائی، سخنگوی وزارت امور خارجۀ جمهوری اسلامی، پس از تهدید دونالد ترامپ علیه عمان، با مسقط اعلام همبستگی کرد.
+تهران همچنین تهدیدهای رئیس جمهوری آمریکا علیه عمان را محکوم کرده است.
+دونالد ترامپ، رئیس‌ جمهوری ایالات متحده به عمان هشدار داده بود اگر بخواهد {با جمهوری اسلامی} تنگۀ هرمز را کنترل کند، توسط آمریکا نابود می‌شود.
+اسماعیل بقائی همچنین مدعی شد حملات بامداد پنج‌شنبۀ آمریکا به مناطقی در بندرعباس «نقض فاحش حقوق بین‌الملل و منشور ملل متحد» است.
+بقائی در مورد پهپادهایی که علیه ارتش آمریکا به پرواز درآمده بودند و رهگیری و نابود شدند، توضیحی نداد و تنها مدعی «نقض مستمر آتش‌بس» از سوی آمریکا شد.
+
+#خبر #دژ #عمان
+@DEJradio
+</div>
+
+## DEJradio — post 5069
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5069_1779966810.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 یکشنبه شب سوم خرداد ماه ۱۴۰۵ «علیرضا تمسکنی زاهدی» از نیروهای پلیس اطلاعات و امنیت استان گلستان، حین گشت‌زنی در محله اوزینه گرگان، مقابل چشمان همکارانش با اسلحه سازمانی کلاشنیکف به زندگی خود پایان داد.
+
+رضا تمیزکار از پرسنل پیشین پلیس با اعلام این خبر به نقل از همکاران او گفت علت این تصمیم، "فشار شدید کاری، تحقیر، برخوردهای فرماندهان و فضای فرسایشی حاکم بر بدنه پلیس است که پرسنل را به این نقطه رسانده است."
+
+تمیزکار می‌گوید، این حادثه؛ نشانه بحرانی عمیق در ساختاری است که حتی نیروهای خودش را هم از نظر روحی و روانی فرسوده کرده. افزایش فشار، بی‌انگیزگی و فروپاشی روحیه در میان نیروهای انتظامی در شهرها و شهرستان‌های مختلف، دیگر قابل کتمان نیست.
+
+#اطلاعات #خودکشی
+@DEJradio
+</div>
+
+## Shin_Persian — post 6274
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Emanuel (Mannie) Fabian ✓ @manniefabian Thu, 28 May 2026 11:03:55 UTC The IDF says it carried out a strike in Beirut a short while ago. No further details are given. According to Lebanese media, the strike took place in Shuwayfat, just…
+</div>
+
+## Shin_Persian — post 6273
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6273_1779966811.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Thu, 28 May 2026 11:03:55 UTC
+
+The IDF says it carried out a strike in Beirut a short while ago.
+
+No further details are given.
+
+According to Lebanese media, the strike took place in Shuwayfat, just south of the capital.
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+ارتش دفاعی اسرائیل (IDF) اعلام کرد که لحظاتی پیش حمله‌ای را در بیروت انجام داده است.
+
+جزئیات بیشتری ارائه نشده است.
+
+به گفته رسانه‌های لبنانی، این حمله در الشویفات، در جنوب پایتخت، رخ داده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6272
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6272_1779966811.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+MoFA وزارة الخارجية ✓ @mofauae
+Thu, 28 May 2026 09:57:41 UTC
+
+الإمارات تُدين بشدة الاعتداءات الإرهابية الإيرانية على دولة الكويت بالصواريخ والطائرات المسيّرة
+
+English
+
+The United Arab Emirates strongly condemns the Iranian terrorist attacks on the State of Kuwait using missiles and drones.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6271
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 11:02:57 UTC
+
+Targeted assassination near Hariri airport, Beirut, #Lebanon
+
+فارسی
+
+ترور هدفمند در نزدیکی فرودگاه حریری، بیروت، #Lebanon #لبنان
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 15184
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15184_1779966813.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یدعوت آحرونوت:
+
+حمله جنگنده های اسرائیلی به بیروت برای ترور فرمانده‌ ای در نیروی موشکی حزب‌الله بوده است.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15183
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15183_1779966814.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل در اقدامی ظاهراً ترور، بیروت را بمباران کرد.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15182
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15182_1779966815.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## IranianMinds — post 20937
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20937_1779966815.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمودار جدید نت بلاکس نشان میده همچنان بخشی از محدودیت های اینترنت باقی مونده
+
+@IranianMinds
+</div>
+
+## alonews — post 123268
+
+<div align="center">
+  <a href="telegram/content/alonews_123268_1779966816.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منصور هادی رئیس‌جمهور فراری یمن، در ریاض درگذشت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 14:33
 ---
 
