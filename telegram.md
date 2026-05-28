@@ -7,6 +7,221 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 15:03
+---
+
+## VahidOOnLine — post 242574
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242574_1779967995.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه عربستان سعودی روز پنجشنبه هفتم خردادماه با انتشار بیانیه‌ای حملات پهپادی و موشکی به کشور «برادر» کویت را به‌شدیدترین وجه محکوم کرد.
+
+وزارت امور خارجه عربستان سعودی در این بیانیه با ابراز همبستگی کامل با ملت و دولت کویت اعلام کرد که از هر تصمیمی که دولت کویت برای حفاظت از حاکمیت و تمامیت سرزمینی خود بگیرد، حمایت می‌کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242573
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242573_1779967996.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️وزارت امور خارجه کویت روز پنجشنبه هفتم خرداد‌ماه با انتشار بیانیه‌ای حملات پهپادی و موشکی جمهوری اسلامی ایران به خاک این کشور را به‌شدت محکوم و اعلام کرد که این حملات، تلاش‌های دیپلماتیک برای پایان دادن به جنگ و تنش در خاورمیانه را تضعیف می‌کند.
+
+سپاه پاسداران ساعاتی پیش از این اعلام کرده بود در پاسخ به حمله موشکی آمریکا به نزدیکی فرودگاه بندرعباس، «مبداء این حمله» را هدف قرار داده‌اند. با این حال سپاه اشاره‌ای به کشور کویت نکرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12786
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12786_1779967997.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های عبری : «علی الحسینی»، مسئول موشکی حزب‌الله در یگان امام حسین به هلاکت رسید
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342336
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342336_1779967997.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: CENTCOM says Iran carried out an “egregious ceasefire violation” overnight, launching a ballistic missile toward Kuwait and multiple attack drones near the Strait of Hormuz.
+
+The missile was intercepted by Kuwaiti forces while the U.S. took out five drones and prevented a sixth launch from Bandar Abbas.
+
+President Trump still has faith a deal can happen, but he’s signaling he’s willing to finish the job if Iran keeps pushing.
+
+@madeleinerivera reports the latest.
+</div>
+
+## pm_afshaa — post 91731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات ارتش اسراییل به بیروت 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سنتکام حمله ایران با یک عدد موشک بالستیک به کویت را نقض فاحش آتش‌بس خواند
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91729
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91729_1779967999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات ارتش اسراییل به بیروت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## Shin_Persian — post 6279
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6279_1779968000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Thu, 28 May 2026 11:17:43 UTC Initial: A commander of IRGC-backed Hashed Sha'abi / PMU / PMF terror organization has been killed in Maysan governorate, #Iraq 🇮🇶 ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.…
+</div>
+
+## Shin_Persian — post 6278
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Thu, 28 May 2026 11:17:43 UTC
+
+Initial:
+A commander of IRGC-backed Hashed Sha'abi / PMU / PMF terror organization has been killed in Maysan governorate, #Iraq 🇮🇶
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+یکی از فرماندهان سازمان تروریستی حشد الشعبی (بسیج مردمی عراق) وابسته به سپاه پاسداران، در استان میسان، #Iraq 🇮🇶 کشته شده است.
+
+𝕏 · @shin_persian
+</div>
+
+## DW_Farsi — post 125232
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_125232_1779968001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 تهدید‌ عمان از سوی ترامپ و حمایت ایران از این کشور
+
+اسماعیل بقائی، سخنگوی وزارت امور خارجه جمهوری اسلامی، حملات نظامی بامداد امروز آمریکا به بندرعباس را "نقض فاحش منشور ملل متحد و آتش‌بس نوزدهم فروردین" خواند و آن چه را که "لفاظی‌های واشنگتن علیه ایران و عمان" نامید محکوم کرد.
+
+بقائی همچنین با محکوم کردن "تعرض به کشتیرانی تجاری در منطقه‌ خلیج فارس و آب‌های آزاد و نیز تعرض هوایی به مناطق جنوبی ایران ظرف چند روز گذشته"، بر حق قانونی جمهوری اسلامی برای دفاع برای دفاع طبق ماده ۵۱ منشور سازمان ملل تأکید کرد.
+
+سخنگوی وزارت امور خارجه جمهوری اسلامی همچنین گفت که "با کشور دوست و برادر عمان" ابراز همبستگی می‌کند. او با اشاره ضمنی به اظهارات اخیر ترامپ گفت: «تهدید به "انهدام" یک کشور عضو سازمان ملل متحد که همواره نقشی سازنده، موثر و مسئولانه در قبال صلح و امنیت منطقه داشته و طی سال‌های متمادی در مقام میانجی روندهای دیپلماتیک، مساعی جمیله خود را در خدمت صلح و ثبات منطقه به کار گرفته است، نه تنها نقض اصل بنیادین منع تهدید به استفاده از زور است، بلکه نشانه خطرناک دیگری از عادی‌سازی قانون‌شکنی و قلدرمآبی در روابط بین‌الملل است.»
+
+ترامپ در اظهارات اخیر خود در جریان نشست کابینه درباره آینده تنگه هرمز، به عمان، شریک آمریکا، درباره همکاری با ایران هشدار داده بود.
+
+ترامپ روز چهارشنبه در کاخ سفید با بیان این که عمان باید "مثل بقیه رفتار کند" گفته بود: «در غیر این صورت آمریکا آن‌ها را منهدم خواهد کرد.»
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 20939
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی خامنه‌ای برای بار هزارو یکم به صورت متنی پیامی منتشر کرد
+
+- حداقل یکی از پیاماتو ویس بده مشتی مطمعن شیم زنده ای
+
+@IranianMinds
+</div>
+
+## Hranews — post 113208
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دزفول؛ یک نوجوان ۱۷ ساله پدر، مادر و برادرش را به قتل رساند
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– امروز پنجشنبه ۷ خردادماه، یک نوجوان ۱۷ ساله در دزفول پس از به قتل رساندن پدر و مادرش با مراجعه به محل کسب برادرش وی را نیز با ضربات سلاح سرد به #قتل رساند. او پس از این اقدام به زندگی خود پایان داد.
+
+ادامه مطلب
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 123275
+
+<div align="center">
+  <a href="telegram/content/alonews_123275_1779968001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات هوایی به شهر النبطیه در جنوب لبنان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123274
+
+<div align="center">
+  <a href="telegram/content/alonews_123274_1779968001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: افزایش فشار واشنگتن بر کوبا؛ برنامه‌ریزی واشنگتن برای بحران احتمالی در تابستان
+
+
+
+🔴طبق گزارش آکسیوس، دولت ترامپ در بحبوحه نگرانی‌ها از بی‌ثباتی بزرگ در کوبا طی تابستان امسال، فشارها بر این کشور را از طریق تحریم‌های شدیدتر افزایش داده است.
+
+
+🔴مقامات آمریکایی اعلام کرده‌اند که در صورت تشدید ناآرامی‌ها، گزینه‌های نظامی احتمالی را بررسی کرده‌اند، هرچند تهاجم مستقیمی برنامه‌ریزی نشده است.
+
+
+🔴این استراتژی بر فلج کردن اقتصادی کوبا از طریق هدف قرار دادن منابع اصلی درآمد و شرکت‌های وابسته به ارتش این کشور تمرکز دارد.
+
+
+🔴مقامات این رویکرد را یک «شتاب‌گرایی تدریجی» توصیف می‌کنند؛ یعنی افزایش حداکثری فشارها در عین اجتناب از مداخله مستقیم در شرایط فعلی.
+
+
+🔴واشنگتن بر این باور است که تشدید کمبود مواد غذایی، برق و سوخت در کوبا می‌تواند جرقه اعتراضاتی مشابه تظاهرات ضد دولتی گذشته را بزند.
+
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 14:53
 ---
 
