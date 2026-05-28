@@ -7,6 +7,34 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 06:42
+---
+
+## VahidOOnLine — post 242515
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242515_1779937970.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️اسوشیتدپرس در توضیح حمله اوایل بامداد پنجشنبه ارتش آمریکا در بندرعباس به نقل از مقامات آمریکایی گزارش داد که نیروهای فرماندهی مرکزی آمریکا چهار پهپاد تهاجمی یک‌طرفه ایران را که در نزدیکی تنگه هرمز تهدیدی ایجاد کرده بودند سرنگون کردند و یک ایستگاه کنترل زمینی را در بندر عباس هدف گرفتند که در آستانه پرتاب پنجمین پهپاد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242514
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242514_1779937971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️در نخستین ساعات بامداد پنجشنبه، رسانه‌های کویت از شنیده شدن صدای آژیر در این کشور خبر دادند. همزمان گزارش شد که سیستم دفاع هوایی کویت در مقابله با یک حمله موشکی و پهپادی متخاصم فعال شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 06:33
 ---
 
