@@ -7,6 +7,62 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 06:42
+---
+
+## FoxNewsTwitter — post 342390
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342390_1780024342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Spencer Pratt says he's the "look around" candidate: "Look around and see with your own eyes what I'm saying."
+
+"And that's why I'm going to win." |@Gutfeldfox
+</div>
+
+## FoxNewsTwitter — post 342389
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342389_1780024343.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I hate these people."
+
+Los Angeles mayoral candidate Spencer Pratt didn't hold back on @gutfeldfox as he says he keeps being asked which politicians he looks up to.
+
+"These people let my house and my mom's house burn down," Pratt said before blasting Mayor Bass.
+
+"She's actually a terrible liar, she's just incredible at how much she does it."
+</div>
+
+## BBCPersian — post 282298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻 یک مقام سابق سیا با شمش‌های طلا به ارزش ۴۰ میلیون دلار بازداشت شد
+
+به گزارش رسانه‌های آمریکا،‌ يک مقام پيشين سازمان اطلاعات مرکزی آمريکا (سيا) هفته گذشته بازداشت شد و به هنگام بازرسی از خانه او ۴۰ میلیون دلار شمش طلا ضبط شد. دستگیری او پس از آن روی داد که ماموران اف‌بی‌آی در جريان تحقيق درباره اينکه آيا او درباره سوابق تحصيلی و نظامی خود دروغ گفته است يا نه، این شمش‌های طلا را پیدا کردند.
+
+بر اساس اسناد دادگاه و به گفته منابع آگاه، ديويد راش در حال حاضر در بازداشت به سر می‌برد.
+
+شبکه سی‌بی‌اس نوشته ديويد راش به سرقت اموال عمومی متهم شده است.
+
+در شکايتی کيفری که به شکل غيرمعمولی تنظيم شده، اف‌بی‌آی آقای راش را متهم کرده است که شمش‌های طلا را به طور غیرقانونی تصاحب کرده، «حقوقی متقلبانه و بيش از ميزان واقعی دريافت کرده»، «به صورت متقلبانه از مرخصی نظامی بهره‌مند شده» و مجموعه‌ای از اظهارات نادرست درباره سوابق خود مطرح کرده است.
+
+بر اساس متن شکايت، دیوید راش بين نوامبر ۲۰۲۵ تا مارس سال جاری چندين درخواست به دولت ارائه کرده تا مقادير زيادی ارز خارجی و ده‌ها ميليون دلار شمش طلا برای هزينه‌های مرتبط با کار دريافت کند.
+
+با اين حال، در اين شکايت به طور دقيق مشخص نشده که چه اقدام يا اقداماتی مبنای طرح اين اتهامات بوده است.
+
+https://bbc.in/4uDaur8
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 06:32
 ---
 
